@@ -9,19 +9,19 @@ class clown {
 }
 
 static void Main(string[] args) {
-    clown oneClown = new Clown();
+    clown oneClown = new clown();
     oneClown.name = "Boffo";
     oneClown.height = 14;
     oneClown.occupation = "Plumber";
     oneClown.stateYourBusiness(); 
     
-    clown anotherClown = new Clown();
+    clown anotherClown = new clown();
     anotherClown.name = "Biff";
     anotherClown.height = 16;
     anotherClown.occupation = "Fighter";
     anotherClown.stateYourBusiness();
     
-    clown clown3 = new Clown();
+    clown clown3 = new clown();
     clown3.name = anotherClown.Name;
     clown3.height = oneClown.Height - 3;
     clown3.occupation = "Plumber's Assistant";
@@ -30,7 +30,7 @@ static void Main(string[] args) {
     anotherClown.height *= 2;
     anotherClown.stateYourBusiness();
     
-    clown lastClown = new Clown();
+    clown lastClown = new clown();
     lastClown.name = "Doink";
     lastClown.height = 21;
     lastClown.occupation = "Wrestler";
