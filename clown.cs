@@ -1,4 +1,4 @@
-class Clown {
+class clown {
     public string name;
     public int height;
     public string occupation;
@@ -9,19 +9,19 @@ class Clown {
 }
 
 static void Main(string[] args) {
-    Clown oneClown = new Clown();
+    clown oneClown = new Clown();
     oneClown.name = "Boffo";
     oneClown.height = 14;
     oneClown.occupation = "Plumber";
     oneClown.stateYourBusiness(); 
     
-    Clown anotherClown = new Clown();
+    clown anotherClown = new Clown();
     anotherClown.name = "Biff";
     anotherClown.height = 16;
     anotherClown.occupation = "Fighter";
     anotherClown.stateYourBusiness();
     
-    Clown clown3 = new Clown();
+    clown clown3 = new Clown();
     clown3.name = anotherClown.Name;
     clown3.height = oneClown.Height - 3;
     clown3.occupation = "Plumber's Assistant";
@@ -30,7 +30,7 @@ static void Main(string[] args) {
     anotherClown.height *= 2;
     anotherClown.stateYourBusiness();
     
-    Clown lastClown = new Clown();
+    clown lastClown = new Clown();
     lastClown.name = "Doink";
     lastClown.height = 21;
     lastClown.occupation = "Wrestler";
