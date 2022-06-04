@@ -4,7 +4,7 @@ class clown {
     public string occupation;
     
     public void stateYourBusiness() {
-        Console.WriteLine("My name is " + name + "and I'm " + height + " inches tall " + " and I am a " + occupation);
+        Console.WriteLine("My name is " + name + "and I am " + height + " inches tall " + " and I am a " + occupation);
     }
 }
 
@@ -35,4 +35,10 @@ static void Main(string[] args) {
     lastClown.height = 21;
     lastClown.occupation = "Wrestler";
     lastClown.stateYourBusiness();
+	
+	clown nextToLastClown = new clown();
+	nextToLastClown.name = "Pointo Been";
+	nextToLastClown.height = 33;
+	nextToLastClown.occupation = "Paul Bunyon w/ Axe Statue, Organizer && Cleaner";
+	nextToLastClown.stateYourBusiness();
 }
