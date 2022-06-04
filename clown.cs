@@ -36,9 +36,9 @@ static void Main(string[] args) {
     lastClown.occupation = "Wrestler";
     lastClown.stateYourBusiness();
 	
-	clown nextToLastClown = new clown();
-	nextToLastClown.name = "Pointo Been";
-	nextToLastClown.height = 33;
-	nextToLastClown.occupation = "Paul Bunyon w/ Axe Statue, Organizer && Cleaner";
-	nextToLastClown.stateYourBusiness();
+    clown nextToLastClown = new clown();
+    nextToLastClown.name = "Pointo Been";
+    nextToLastClown.height = 33;
+    nextToLastClown.occupation = "Paul Bunyon w/ Axe Statue, Organizer && Cleaner";
+    nextToLastClown.stateYourBusiness();
 }
