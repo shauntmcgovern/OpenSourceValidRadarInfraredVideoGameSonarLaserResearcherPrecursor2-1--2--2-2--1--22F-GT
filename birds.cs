@@ -67,3 +67,17 @@ class Ostrich : Bird
 		return eggs;
 	}
 }
+
+class Vulture : Bird
+{
+	public override Egg[] LayEggs(int numberOfEggs)
+	{
+		Egg[] eggs = new Egg[numberOfEggs];
+		for (int i = 0; i < numberOfEggs; i++)
+		{
+			eggs[i] = new Egg(Bird.Randomizer.NextDouble() * 6 + 3, "green && blue");
+		}
+		return eggs;
+	}
+}
+
