@@ -3,9 +3,10 @@ static void Main(string[] args)
 	while (true)
 	{
 		Bird bird;
-		Console.Write("\nPress P for pigeon, 0 for ostrich: ");
+		Console.Write("\nPress P for pigeon, 0 for ostrich, V for vulture: ");
 		char key = Char.ToUpper(Console.ReadKey().KeyChar);
 		if (key == 'P') bird = new Pigeon();
+		if (key == 'V') bird = new Vulture();
 		else if (key == 'O') bird = new Ostrich();
 		else return;
 		Console.Write("\nHow many eggs should it lay? ");
