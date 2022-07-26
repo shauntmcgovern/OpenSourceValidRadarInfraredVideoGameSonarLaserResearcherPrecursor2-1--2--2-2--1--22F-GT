@@ -1,4 +1,4 @@
-//To be honest all programming languages are the same, they just are written differently. Still the same framework.
+//To be honest all programming languages are the same, they just are written differently. Still have the same framework && architecture.
 class clown {
     public string name;
     public int height;
