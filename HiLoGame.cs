@@ -1,85 +1,76 @@
-class Guy
+static class HiLoGame
 {
-    public string Name;
-    public int Cash;
+    public const int MAXIMUM = 10;
+    private static Random random = new Random();
+    private static int currentNumber = random.Next(1, MAXIMUM + 1);
+    private static int jackpot = 10;
     
-    public void WriteMyInfo()
-    {
-        Console.WriteLine(Name + " has " + Cash + " bucks.");
-    }
+    public static int GetPot() {return pot;}
     
-    public int GiveCash(int amount)
+    public static void Guess(bool higher)
     {
-        if (amount <= 0)
+        int givenNumber = random.Next(1, MAXIMUM + 1);
+        if ((higher && givenNumber >= currentNumber) || (!higher && givenNumber <= currentNumber))
         {
-            Console.WriteLine(Name + " says: " + amount + " isn't a valid amount");
-            return 0;
-        }
-        if (amount > Cash)
-        {
-            Console.WriteLine(Name + " says: " +
-                                "I don't have enough cash to give you " + amount);
-            return 0;
-        }
-        Cash -= amount;
-        return amount;
-    }
-    
-    public void ReceiveCash(int amount)
-    {
-        if (amount <= 0)
-        {
-            Console.WriteLine(Name + " says: " + amount + " isn't an amount I'll take");
+            Console.WriteLine("You guessed right!");
+            jackpot++;
         }
         else
         {
-            Cash += amount;
+            Console.WriteLine("Bad luck, you guessed wrong.");
+            jackpot--;
         }
+        currentNumber = givenNumber;
+        Console.WriteLine($"The current number is {currentNumber}");
+    }
+    
+    public static void Hint()
+    {
+        int half = MAXIMUM / 2;
+        if (currentNumber >= half)
+            Console.WriteLine($"The number is at least {half}");
+        else     
+            Console.WriteLine($"The number is at most {half}");
+        jackpot--;
     }
 }
 
-static void Main(String[] args)
-{
-    Guy shaun = new Guy() { Cash = 100, Name = "Shaun" };
-    Guy terence = new Guy() { Cash = 200, Name = "Terence" };
+HiLoGame.random = new Random(1);
+Random listOfNumbers = new Random(1);
+Console.Write("The first 20 numbers will be: ");
+for (int i = 0; i < 10; i++)
+    Console.Write($"{listOfNumbers.Next(1, HiLoGame.MAXIMUM + 1)}, ");
     
-    while (true)
-    {
-        shaun.WriteMyInfo();
-        terence.WriteMyInfo();
-        Console.Write("Enter an amount: ");
-        string howMuch = Console.ReadLine();
-        if (howMuch == "") return;
-        if (int.TryParse(howMuch, out int amount))
-        {
-            Console.Write("Who should give the cash: ");
-            string whichGuy = Console.ReadLine();
-            if (whichGuy == "Shaun")
-            {
-                int cashGiven = shaun.GiveCash(amount);
-                terence.ReceiveCash(cashGiven);
-            }
-            else if (whichGuy == "Terence")
-            {
-                int cashGiven = bod.GiveCash(amount);
-                shaun.ReceiveCash(cashGiven);
-            }
-            else
-            {
-                Console.WriteLine("Please enter 'Shaun' or 'Terrence'");
-            }
-        }
-        else
-        {
-            Console.WriteLine("Please enter an amount (or a blank line to exit).");
-        }
-    }
-}
-    
-            
-            
-            
-            
-            
+        
+        
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
             
             
