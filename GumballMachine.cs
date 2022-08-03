@@ -25,6 +25,28 @@ pubic setGumballPrice(int totalPrice)
     totalPrice = 1;
     price = totalPrice;
 }
+
+class VendingMachine
+{
+    public virtual string Item { get; }
+    
+    protected virtual bool CheckAmount(decimal money) {
+            return false;
+    }
+    public virtual int SelectedButton(int button)
+    {
+        while(Item != button) {
+            if(Item == button)
+                return Dispense();
+        }
+    }
+            
+    public string Dispense(decimal money)
+    {
+        if (CheckAmount(money)) return Item;
+        else return "Please enter the right amount in order to use it.";
+    }
+}
             
             
             
