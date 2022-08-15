@@ -36,7 +36,7 @@ class AnimalFeedVendingMachine : VendingMachine
     
     public virtual int Dispense(decimal money)
     {
-        if(money == 5) {
+        if(CheckAmount()) {
                 return Item;
                 return animalFeedAmountOfKernels;
         }
