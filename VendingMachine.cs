@@ -34,11 +34,20 @@ class AnimalFeedVendingMachine : VendingMachine
         return money >= 5;
     }
     
-    public virtual int Dispense(decimal money)
+    public virtual int dispenseAnimalFeed(decimal money)
     {
         if(CheckAmount()) {
                 return Item;
                 return animalFeedAmountOfKernels;
         }
+    }
+}
+
+class Program
+{
+    static void Main(String[] args)
+    {
+        VendingMachine vendingMachine = new AnimalFeedVendingMachine();
+        Console.WriteLine(vendingMachine.Dispense(1));
     }
 }
