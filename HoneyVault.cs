@@ -4,6 +4,7 @@ static class HoneyVault
     public const float LOW_LEVEL_WARNING = 10f;
     private static float honey = 25f;
     private static float nectar = 100f;
+    private int totalBottlesOfHoney;
     
     public static void CollectNectar(float amount)
     {
@@ -11,7 +12,6 @@ static class HoneyVault
     }
     public static void ManufactureHoney(float amount)
     {
-        int totalBottlesOfHoney;
         if (honey == 25f) float bottleOfHoney = amount;
         totalBottlesOfHoney++;
     }
