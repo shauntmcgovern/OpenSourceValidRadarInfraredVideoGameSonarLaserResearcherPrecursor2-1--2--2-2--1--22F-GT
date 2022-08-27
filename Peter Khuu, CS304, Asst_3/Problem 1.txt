@@ -1,0 +1,24 @@
+
+
+ ----jGRASP exec: javac -g TowersNonRecursive.java
+
+
+ ----jGRASP: operation complete.
+ ----jGRASP exec: java TowersNonRecursive
+
+Enter n:  
+3
+Enter String 'left':  a
+Enter String 'middle':  b
+Enter String 'right':  c
+
+TowersJob: n = 3, left = a, middle = b, right = c
+Move a to c
+Move a to b
+Move c to b
+Move a to c
+Move b to a
+Move b to c
+Move a to c
+
+ ----jGRASP: operation complete.

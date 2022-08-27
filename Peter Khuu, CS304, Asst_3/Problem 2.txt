@@ -1,0 +1,57 @@
+
+ ----jGRASP exec: javac -g IntLinkedStack.java
+
+
+ ----jGRASP: operation complete.
+
+ ----jGRASP exec: javac -g ITDIntLinkedStack.java
+
+
+ ----jGRASP: operation complete.
+
+ ----jGRASP exec: java ITDIntLinkedStack
+
+YES
+Here are your choices: 
+
+(1) display menu
+(2) check isEmpty
+(3) push
+(4) peek
+(5) pop
+(6) empty the stack
+(7) size
+(8) toString
+(0) quit
+
+Enter your choice#:  3
+Enter value to push:  3
+Pushed value 3.
+
+Enter your choice#:  3
+Enter value to push:  5
+Pushed value 5.
+
+Enter your choice#:  3
+Enter value to push:  6
+Pushed value 6.
+
+Enter your choice#:  3
+Enter value to push:  4
+Pushed value 4.
+
+Enter your choice#:  7
+Size is 4
+
+Enter your choice#:  8
+Here is a view of the stack: 
+4
+6
+5
+3
+ 
+
+Enter your choice#:  0
+Bye!
+
+ ----jGRASP: operation complete.
