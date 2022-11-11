@@ -44,7 +44,7 @@ class Weapon
 	}
 }
 
-class 9mm : Weapon
+class Ninemm : Weapon
 {
 	if(bulletDiameter == 9.01)
 		if(landDiameter	== 8.82)
