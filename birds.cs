@@ -33,6 +33,28 @@ class Egg
 	}
 }
 
+class Weapon
+{
+	String[] HandgunWeapons;
+	int count;
+	public categorizeWeapon(String typeOfWeapon)
+	{
+		HandgunWeapons[count] = typeOfWeapon;
+		count++;
+	}
+}
+
+class 9mm : Weapon
+{
+	if(bulletDiameter == 9.01)
+		if(landDiameter	== 8.82)
+			if(neckDiameter == 9.65)
+				if(baseDiameter == 9.93) {
+					String Gun = "9mm";
+					CategorizeWeapon(Gun);
+				}
+}
+
 class Bird
 {
 	public static Random Randomizer = new Random();
