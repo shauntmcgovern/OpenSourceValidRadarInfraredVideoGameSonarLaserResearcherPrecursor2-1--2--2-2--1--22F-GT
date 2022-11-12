@@ -1,5 +1,6 @@
 static void Main(string[] args)
-{
+{ 
+	double bulletDiameter, landDiameter, neckDiameter, baseDiameter;
 	while (true)
 	{
 		Bird bird;
@@ -51,7 +52,7 @@ class NineMM : Weapon
 			if(neckDiameter == 9.65)
 				if(baseDiameter == 9.93) {
 					String Gun = "9mm";
-					CategorizeWeapon(Gun);
+					categorizeWeapon(Gun);
 				}
 }
 
