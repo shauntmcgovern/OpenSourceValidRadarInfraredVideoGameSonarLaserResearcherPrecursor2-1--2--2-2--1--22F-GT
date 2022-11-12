@@ -6,41 +6,39 @@ public interface IAudio
 public class Radio : IAudio
 {
     private int volume = 0;
-}
 
-void IAudio.AdjustVolume(int value)
-{
-    volume += value;
-}
-
-public int Volume
-{
-    get
+    void IAudio.AdjustVolume(int value)
     {
-        return volume;
+        volume += value;
     }
-    set
+
+    public int Volume
     {
-        volume = value;
+        get
+        {
+            return volume;
+        }
+        set
+        {
+            volume = value;
+        }
     }
-}
 
-private double station = 94.1;
+    private double station = 94.1;
 
-public double Station
-{
-    get
+    public double Station
     {
-        return station;
+        get
+        {
+            return station;
+        }
+        set
+        {
+            station = value;
+        }
     }
-    set
-    {
-        station = value;
-    }
-}
 
-public void Receive() {}
-
+    public void Receive() {}
 }
 
 public enum RadioBand
