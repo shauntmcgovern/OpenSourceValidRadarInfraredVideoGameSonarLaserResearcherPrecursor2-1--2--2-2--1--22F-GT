@@ -1,6 +1,17 @@
+import System.Radar;
+import System.Thermal;
+import System.Infared;
+import System.FoucaultRI;
+import System.PoliceDepartment;
+
 static void Main(string[] args)
 { 
 	double bulletDiameter, landDiameter, neckDiameter, baseDiameter;
+	Rader latestWeapon = new Radar();
+	Thermal latestWeaponHeat = new Themral();
+	FoucaultRI emotionalBrainScan = new FoucaultRI();
+	PoliceDepartment criminalDiagnosis = new PoliceDepartment();
+	
 	while (true)
 	{
 		Bird bird;
@@ -20,17 +31,29 @@ static void Main(string[] args)
 	}
 }
 
-class Egg
-{
-	public double Size { get; private set; }
-	public string Color { get; private set; }
-	public Egg(double size, string color)
-	{
-		Size = size;
-		Color = color;
+class Radar(num weaponFound) 
+{ 
+	Radar.FindTypeOfWeapon() = num newToy;
+	if(newToy == weaponFound)
+		criminalDiagonsis.Alert();
+		return newToy;
+}
+
+class Thermal(boolean weaponOnPerson) 
+{ 
+	if(latestWeaponHeat.greaterThanWalletHeat()) {
+		criminalDiagonsis.Alert();
+		return true;
 	}
-	public string Description {
-		get { return $"A {Size:0.0} cm {Color} egg"; }
+	else
+		return false;
+}
+
+class FoucaultRI(String criminalAttempt) 
+{ 
+	if(criminalAttempt == paislyGreen) {
+		emotionalBrainScan.Angry();
+		criminalDiagonsis.Alert();
 	}
 }
 
@@ -54,6 +77,21 @@ class NineMM : Weapon
 					String Gun = "9mm";
 					categorizeWeapon(Gun);
 				}
+}
+
+
+class Egg
+{
+	public double Size { get; private set; }
+	public string Color { get; private set; }
+	public Egg(double size, string color)
+	{
+		Size = size;
+		Color = color;
+	}
+	public string Description {
+		get { return $"A {Size:0.0} cm {Color} egg"; }
+	}
 }
 
 class Bird
