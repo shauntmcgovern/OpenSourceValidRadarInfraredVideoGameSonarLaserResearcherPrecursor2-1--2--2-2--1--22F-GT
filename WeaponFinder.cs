@@ -3,14 +3,17 @@ import System.Thermal;
 import System.Infared;
 import System.FoucaultRI;
 import System.PoliceDepartment;
+import System.Drawing;
 
 static void Main(string[] args)
 { 
 	double bulletDiameter, landDiameter, neckDiameter, baseDiameter;
+	
 	Rader latestWeapon = new Radar();
 	Thermal latestWeaponHeat = new Themral();
 	FoucaultRI emotionalBrainScan = new FoucaultRI();
 	PoliceDepartment criminalDiagnosis = new PoliceDepartment();
+	Color angryColor = Color.FromKnownColor(KnownColor.LightSeaGreen).ToString();
 	
 	while (true)
 	{
@@ -31,15 +34,15 @@ static void Main(string[] args)
 	}
 }
 
-class Radar(num weaponFound) 
+class RadarExample(enum weaponFound) 
 { 
-	Radar.FindTypeOfWeapon() = num newToy;
+	latestWeapon.FindTypeOfWeapon() = enum newToy;
 	if(newToy == weaponFound)
 		criminalDiagonsis.Alert();
 		return newToy;
 }
 
-class Thermal(boolean weaponOnPerson) 
+class ThermalExample(boolean weaponOnPerson) 
 { 
 	if(latestWeaponHeat.greaterThanWalletHeat()) {
 		criminalDiagonsis.Alert();
@@ -49,11 +52,11 @@ class Thermal(boolean weaponOnPerson)
 		return false;
 }
 
-class FoucaultRI(String criminalAttempt) 
+class FoucaultRIExample(string criminalAttempt) 
 { 
-	if(criminalAttempt == paislyGreen) {
-		emotionalBrainScan.Angry();
-		criminalDiagonsis.Alert();
+	if(criminalAttempt == angryColor.ToString()) {
+		if(emotionalBrainScan.Angry())
+			return criminalDiagonsis.Alert();
 	}
 }
 
