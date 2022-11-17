@@ -1,3 +1,5 @@
+//https://learn.microsoft.com/en-us/dotnet/api/system.drawing.color?view=net-6.0 Color Library
+
 import System.Radar;
 import System.Thermal;
 import System.Infared;
