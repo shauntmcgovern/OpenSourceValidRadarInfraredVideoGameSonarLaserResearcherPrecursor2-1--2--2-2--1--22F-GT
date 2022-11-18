@@ -56,7 +56,7 @@ class ThermalExample(boolean weaponOnPerson)
 
 class FoucaultRIExample(string criminalAttempt) 
 { 
-	if(criminalAttempt == angryColor.ToString()) {
+	if(criminalAttempt == angryColor) {
 		if(emotionalBrainScan.Angry())
 			return criminalDiagonsis.Alert();
 	}
@@ -66,7 +66,7 @@ class Weapon
 {
 	String[] HandgunWeapons;
 	int count;
-	public categorizeWeapon(String typeOfWeapon)
+	public categorizeWeapon(string typeOfWeapon)
 	{
 		HandgunWeapons[count] = typeOfWeapon;
 		count++;
@@ -80,7 +80,7 @@ class NineMM : Weapon
 			if(neckDiameter == 9.65)
 				if(baseDiameter == 9.93) {
 					String Gun = "9mm";
-					categorizeWeapon(Gun);
+					Weapon.categorizeWeapon(Gun);
 				}
 }
 
