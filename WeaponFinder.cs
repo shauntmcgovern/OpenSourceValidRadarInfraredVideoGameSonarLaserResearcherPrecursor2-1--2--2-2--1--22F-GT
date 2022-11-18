@@ -12,7 +12,7 @@ static void Main(string[] args)
 	double bulletDiameter, landDiameter, neckDiameter, baseDiameter;
 	
 	Rader latestWeapon = new Radar();
-	Thermal latestWeaponHeat = new Themral();
+	Thermal latestWeaponThermal = new Themral();
 	FoucaultRI emotionalBrainScan = new FoucaultRI();
 	PoliceDepartment criminalDiagnosis = new PoliceDepartment();
 	Color angryColor = Color.FromKnownColor(KnownColor.LightSeaGreen).ToString();
@@ -41,13 +41,13 @@ class RadarExample(enum weaponFound)
 	latestWeapon.FindTypeOfWeapon() = enum newToy;
 	if(newToy == weaponFound)
 		criminalDiagonsis.Alert();
-		return newToy;
+		return weaponFound;
 }
 
-class ThermalExample(boolean weaponOnPerson) 
+class ThermalExact(boolean weaponOnPerson) 
 { 
-	if(latestWeaponHeat.greaterThanWalletHeat()) {
-		criminalDiagonsis.Alert();
+	if(latestWeaponThermal.weaponOnCriminalBody()) {
+		criminalDiagnosis.Alert();
 		return true;
 	}
 	else
@@ -57,8 +57,8 @@ class ThermalExample(boolean weaponOnPerson)
 class FoucaultRIExample(string criminalAttempt) 
 { 
 	if(criminalAttempt == angryColor) {
-		if(emotionalBrainScan.Angry())
-			return criminalDiagonsis.Alert();
+			emotionalBrainScan.Angry();
+			return criminalDiagnosis.Alert();
 	}
 }
 
@@ -79,7 +79,7 @@ class NineMM : Weapon
 		if(landDiameter	== 8.82)
 			if(neckDiameter == 9.65)
 				if(baseDiameter == 9.93) {
-					String Gun = "9mm";
+					string Gun = "9mm";
 					Weapon.categorizeWeapon(Gun);
 				}
 }
