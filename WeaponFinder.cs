@@ -39,9 +39,10 @@ static void Main(string[] args)
 public interface RadarExample(enum weaponFound) 
 { 
 	latestWeapon.FindTypeOfWeapon() = enum newToy;
-	if(newToy == weaponFound)
+	if(newToy == weaponFound) {
 		criminalDiagonsis.Alert();
 		return weaponFound;
+	}
 }
 
 function ThermalExact(boolean weaponOnPerson) 
