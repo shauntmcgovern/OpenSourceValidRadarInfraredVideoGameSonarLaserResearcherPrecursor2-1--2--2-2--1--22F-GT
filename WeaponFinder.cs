@@ -36,7 +36,7 @@ static void Main(string[] args)
 	}
 }
 
-class RadarExample(enum weaponFound) 
+public interface RadarExample(enum weaponFound) 
 { 
 	latestWeapon.FindTypeOfWeapon() = enum newToy;
 	if(newToy == weaponFound)
@@ -44,7 +44,7 @@ class RadarExample(enum weaponFound)
 		return weaponFound;
 }
 
-class ThermalExact(boolean weaponOnPerson) 
+function ThermalExact(boolean weaponOnPerson) 
 { 
 	if(latestWeaponThermal.weaponOnCriminalBody()) {
 		criminalDiagnosis.Alert();
@@ -54,7 +54,7 @@ class ThermalExact(boolean weaponOnPerson)
 		return false;
 }
 
-class FoucaultRIExample(string criminalAttempt) 
+function FoucaultRIExample(string criminalAttempt) 
 { 
 	if(criminalAttempt == angryColor) {
 			emotionalBrainScan.Angry();
