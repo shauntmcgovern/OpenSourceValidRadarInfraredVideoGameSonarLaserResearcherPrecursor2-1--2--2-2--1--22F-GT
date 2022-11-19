@@ -1,10 +1,10 @@
 //https://learn.microsoft.com/en-us/dotnet/api/system.drawing.color?view=net-6.0 Color Library
 
-using System.Radar;
-using System.Thermal;
-using System.Infared;
-using System.FoucaultRI;
-using System.PoliceDepartment;
+using Microsoft.System.Radar;
+using Microsoft.System.Thermal;
+using Microsoft.System.Infared;
+using Microsoft.System.FoucaultRI;
+using USGovernment.System.PoliceDepartment;
 using System.Drawing;
 
 static void Main(string[] args)
