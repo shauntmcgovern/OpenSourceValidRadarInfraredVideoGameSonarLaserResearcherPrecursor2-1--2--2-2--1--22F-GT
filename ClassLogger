@@ -1,0 +1,117 @@
+using System;
+using System.Diagnostics;
+
+namespace TestLog
+{
+	public class Logger
+	{
+	#region Private Members
+		private static EventLog log = null;
+		private static EventlogTraceListener listener = null;
+		private static string source = "";
+		private static string logName = "";
+		private static string machineName = "";
+		
+		private Logger(string source, string logName, string machineName)
+		{
+			Logger.source = source;
+			Logger.logName = logName;
+			Logger.machineName = machineName;
+			Initialize();
+		}
+		
+		private void Initialize()
+		{
+			Check();
+			CheckListener();
+			log = new EventLog(logName, machineName, source);
+			listener = new EventLogTraceListener(log);
+			Trace.Listeners.Add(listener);
+		}
+		
+		private void Check()
+		{
+			if(SourceExists() && !LogNamesEqual())
+			{
+				string name =
+					EventLog.LogNameFromSourceName(source, machineName);
+				CheckLog(name);
+				EventLog.DeleteEventSource(source, machineName);
+				EventLog.Delete(name, machineName);
+			}
+		}
+		
+		private void CheckLog(string log)
+		{
+			const string Mask = "Do not delete default log {0}";
+			if( log.ToUpper() == "APPLICATION"
+			   || log.ToUpper() == "SYSTEM"
+			   || log.ToUpper() == "SECURITY" )
+			   throw(new Exception(string.Format(Mask, source)));
+		}
+		
+		private void CheckListener()
+		{
+			Trace.Listeners.Remove(listener);
+		}
+		
+		private bool SourceExists()
+		{
+			return EventLog.SourceExists(source, machineName);
+		}
+		
+		private bool LogNamesEqual()
+		{
+			return EventLog.LogNameFromSourceName (
+				source, machineName).ToUpper() == logName.ToUpper();
+					}
+		private static EventLog CreateDefault()
+		{
+			CreateNew("Logger", "Test", ".");
+			return log;
+		}
+			#endregion
+		
+		public static void CreateNew(string source, 
+			string logName, string machineName)
+		{
+			Logger drop = new Logger(source, logName, machineName);
+		}
+		
+		public static EventLog Log 
+		{
+			get
+			{
+				return log != null ? log : CreateDefault();
+			}
+		}
+		
+		[Conditional("DEBUG")]
+		public static void WriteEntry(string message)
+		{
+			Log.WriteEntry(message);
+		}
+		
+		[Conditional("DEBUG")]
+		public static void WriterEntry(string message,
+			EventLogEntryType type)
+			{
+				Log.WriteEntry(message, type);
+			}
+			
+		public static EventLogEntryCollection Entries
+		{
+			get
+			{
+				return Log.Entries;
+			}
+		}
+	}
+}
+	
+	
+	
+	
+	
+	
+	
