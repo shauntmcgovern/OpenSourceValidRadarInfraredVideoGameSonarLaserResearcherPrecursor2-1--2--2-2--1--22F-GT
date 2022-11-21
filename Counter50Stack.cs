@@ -12,6 +12,7 @@ private void menuItem16_Click(object sender, System.EventArgs e)
     try
     {
         StackWinder();
+        richTextBox1.AppendText(StackWinder.FrameCount().ToString());
     }
     catch(Exception x)
     {
