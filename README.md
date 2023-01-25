@@ -1,4 +1,4 @@
 # CSharpJavaCollectionOfPrototypes
 Classes, Heaps, Statics, Public Variables, Appenditures, Attribution Organizations, Nodes, Stacks. The Radar, Sonar, Thermal Technology System and Prototypes.
-An Open Source project now in pratical form being used by the Chicago Police Department, Copyrighted by Shaun McGovern LLC.
+An Open Source project now in pratical form being used by the Chicago Police Department and the United States Army, Copyrighted by Shaun McGovern LLC.
 # Radar, Sonar, Thermal, Infrared, Laser, Weather, Forensic and Future well-being of any individiual in a medical or taxonomic or biological or chemical or physical or branch-ecclesiastical-type face and warrent scientific knowning or weather forensic insight and true human nature biological, meta-phsyical human senses and our foresight leading to our protective human precept and Related Technologies etc. and open to all other solutions in order to implement and complete these projects and technolgy system as a whole, lead by Shaun McGovern inc. This working and currently understood system removes all forms of violence from the human population and a dissertation of all Law Enforcement Branches.
