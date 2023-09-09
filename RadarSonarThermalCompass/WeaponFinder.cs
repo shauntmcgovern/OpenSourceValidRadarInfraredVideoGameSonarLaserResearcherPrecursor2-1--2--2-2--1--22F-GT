@@ -2,7 +2,7 @@
 //pseudo code for an example leading to the correct typeface, doesn't compile only face value once again showing the example of how this would go about finding different weapons.
 //and importing the various libraries necessary inordertoduso.
 
-Attn. Marco*Williams; 
+Attn. Marco*Williams;//
 //v.o I am told he is focusing on his strengths and currently leading Silicon Valley, well earned. btw we have the same type of wife, that I see. Can't wait v'\\
 //purp goes//
 //first haha, then a hmm, then a gotcha..Angel?//Perfect.//Ending transmission.
