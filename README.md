@@ -5,9 +5,8 @@ An Open Source project now in a basic form being used by the Chicago Police Depa
 x'Rich::;"{+'}?/'t
 
 ;Attaching Rich Gust8x9(9'/?--0')'7scz'tuso;{}+tuso;v.
-
-(From333*/333 S. Wabash and then* Dæmonic John*/John Hancock building) ÆMERAAt**/tt*t*'/Rich Gust)AAÆMERAÆMERAÆMERA***/tuso8*9(9'/?00::;-0)')0:0)'PP'+'(*')0:00e::eseoz'P'tre'PP
-(From333*/333 S. Wabash and then*/Dæmonic John*/'John Hancock building) ÆMERAAt**/tt*t*'/Rich Gust)AAÆMERAÆMERAÆMERA***/tuso8*/9(9'/?00::;-0)')0:0)'PP'+'(*')0:00e::eseoz'P'tre'PP
+-(From333*/333 S. Wabash and then* Dæmonic John*/John Hancock building) ÆMERAAt**/tt*/t*'/Rich Gust)AAÆMERAÆMERAÆMERA***/tuso8*9(9'/?00::;-0)')0:0)'PP'+'(*')0:00e::eseoz'P'tre'PP
+-(From333*/333 S. Wabash and then*/Dæmonic John*/'John Hancock building) ÆMERAAt**/tt*/t*'/Rich Gust)AAÆMERAÆMERAÆMERA***/tuso8*/9(9'/?00::;-0)')0:0)'PP'+'(*')0:00e::eseoz'P'tre'PP
 
 Attn. General Mark A. Milley and his successor General Charles Q. Brown. Attn. Chief Fred Walker successor Superintendent Chief Larry Snelling. Attn. Angel(Cattle[][] Rancher☐☐),Attn. Mayor of Chicago,,:;/☐;;'{+'=}[:\] Brandon Johnson Attn. Attn.vs'/☐ General Larry Hoover. Attn. Microsoft ☐Azure Marc☐o' Williams Attn. Rich G☐'st. 'o||t:;z; Rich Shaun Fan. 08* Rich Shaun Fan. 08* Rich Shaun Fan.08* Rich Shaun Fan.08* Rich Shaun Fan.08* Rich Gust Shaun Fan. "||Q:"{}[]|\.>?/08 08* vvt
 
