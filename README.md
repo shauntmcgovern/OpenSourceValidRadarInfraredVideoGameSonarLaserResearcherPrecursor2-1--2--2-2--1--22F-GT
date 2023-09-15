@@ -9,5 +9,6 @@ Attn. General Mark A. Milley and his successor General Charles Q. Brown. Attn. C
 Rich Rich Christina Ricci[]//v'v'cc☐/'?'☐☐''wv'wv..::;'?/☐☐?+m=:;"'{+}
 
 Fan '?"☐☐/☐☐?"M/>☐
-
+I am the Project Lead and first Computer Scientist and will lead this discussion.//[]+'svcos.[]+' Hence My Expertise[]+'s I will be busy with my other applications yes, but this is the beginning of my Cyber Intelligence Career, as I aspire to example Bill Gates[x']++vo[]+'s..
+Then once it is up and performing accordingly, operating to Angel's requirements that is, he is the leader of the company- that contracts work to protect human life at any cost. We will decide the operating team from there, and I will always remain on this board.
 # Rich æmera//
