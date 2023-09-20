@@ -385,7 +385,7 @@ John Hancock Center Chicago, Il> The 20th chairman of the Joints Chief of Staff,
 posthumously and in loving memory of Queen Elizabeth II, queen regnant of 32 sovereign states during her lifetime, and was the head of state of her 15 realms.
 
 This is an <.|OpenSourceProject[];.!vt.>:!":o91't'x||:tx.*92**.?> Copyrighted by Shaun McGovern INCC._ Time is of the upmost importance and is an.?/ essence.?>
-Rich Guste//vezxcs..>>:OP::O(OOP):P>
+Rich Guste//vezxcs..>>:OP::O(OOP):P>Rich Guste
 //
 Here is an ongoing collection of drawn prototypes, master system design documents, the GitHub repository and Wikipedia websites:
 https://en.wikipedia.org/wiki/Sonar
@@ -410,4 +410,4 @@ https://en.wikipedia.org/wiki/Infrared
 https://en.wikipedia.org/wiki/Metal_detector
 https://en.wikipedia.org/wiki/Photobiology
 
-Repo:-'*':oo:z;'*P:8*9('/00:0'z))+'//https://github.com/shauntmcgovern/Removed-AllViolenceANDPrototypes_IncliMSDT_OpenSource-G-T-TT
+Repo:-'*':oo:z;'*P:8*9('/00:0'z))+'//https://github.com/shauntmcgovern/Removed-AllVi8lenceANDPrototypes_InciMSDT_OpenSource-G-TTT
