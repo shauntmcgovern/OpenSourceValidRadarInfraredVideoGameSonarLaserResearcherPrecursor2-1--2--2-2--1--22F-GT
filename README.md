@@ -12,7 +12,7 @@ Attn. General Mark A. Milley and his successor General Charles Q. Brown. Attn. C
 
 # vvt *vt
 
-# //☐'tv'//Rich Rich ChristinaChristina☐ Ricci[]//v'v'cc☐/'?'☐☐''wv'wv..::;'?/☐☐☐?+m=:;"'{+}//:?
+# //☐'tv'//Rich Rich ChristinaChristina☐ Ricci[]//v'v'cc☐/'?'☐☐''wv'wv..::;'?/☐☐☐?+m=:;"'{+}//:?ChristinaChristinaChristina
 
 Fan '?"☐☐/☐☐?"M/>☐
 --
