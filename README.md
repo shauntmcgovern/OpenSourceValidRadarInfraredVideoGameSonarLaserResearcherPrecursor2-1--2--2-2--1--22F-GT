@@ -1,5 +1,5 @@
 🎖️**CSharpJavaCollectionOfPrototypes//☐::;"'?/:;"'::;'Q'sr☐t:uvy:;'P'io't''"{'}['"]'":PP{}{};**
-
+**FAN☐☐☐**
 **CSharpJavaCollectionOfPrototypes//☐::;"'?/:;"'::;'Q'sr☐t:uvy:;'P'io't''"{'}['"]'":PP{}{};**
 Classes, Heaps, Statics, Public Variables, Appenditures, Attribution Organizations, Nodes, Stacks. The Radar, Sonar, Thermal Technology System and Prototypes.
 An Open[]Source project now in a basic"?/: t'form :being O'used by the CC'Chicago'O CH'Police CH'O't/Department and the CH'United States Army, CHP'Copyrighted by CH'Shaun McGovern llV'[][]CH'c..\'v open source  \'vljv; v;v;
@@ -22,8 +22,6 @@ Attn. General Mark A. Milley and his successor General Charles Q. Brown. Attn. C
 **vvt** **_/'vt_**
 
 **//☐'tv'//Rich Rich ChristinaChristina☐ Ricci[]//v'v'cc☐/'?'☐☐''wv'wv..::;'?/☐☐☐?+m=:;"'{+}//:?ChristinaChristinaChristinaChristinaChristinaChristinaChristina Fire's't'"☐?/"+'**
-
-**FAN☐☐☐**
 --
 I am the Project Lead and first Computer Scientist and will lead this discussion.//[]+'svcos.[]+' Hence My Expertise[]+'s. I will be busy with my other applications yes, and this will signify the beginning of my Cyber Intelligence Career, as I aspire to follow the
 example of, the one and only, x☐{+}'P:s//v'{+'}:Bill Gates[x']++vo[]+'s..': Then once it is up and performing accordingly, operating to Angel's requirements that'is, he is the leader of the company I have invested':in-☐"{+}:;/? that currently and will contract this 
