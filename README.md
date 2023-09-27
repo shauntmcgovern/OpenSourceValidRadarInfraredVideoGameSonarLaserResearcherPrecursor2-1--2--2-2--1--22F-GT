@@ -23,7 +23,7 @@ Attn. General Mark A. Milley and his successor General Charles Q. Brown. Attn. C
 
 **//☐'tv'//Rich Rich ChristinaChristina☐ Ricci[]//v'v'cc☐/'?'☐☐''wv'wv..::;'?/☐☐☐?+m=:;"'{+}//:?ChristinaChristinaChristinaChristinaChristinaChristinaChristina Fire's't'"☐?/"+'**
 
-**Fan'xo"☐☐:☐☐::>M:>☐**
+**FAN☐☐☐**
 --
 I am the Project Lead and first Computer Scientist and will lead this discussion.//[]+'svcos.[]+' Hence My Expertise[]+'s. I will be busy with my other applications yes, and this will signify the beginning of my Cyber Intelligence Career, as I aspire to follow the
 example of, the one and only, x☐{+}'P:s//v'{+'}:Bill Gates[x']++vo[]+'s..': Then once it is up and performing accordingly, operating to Angel's requirements that'is, he is the leader of the company I have invested':in-☐"{+}:;/? that currently and will contract this 
