@@ -16,9 +16,6 @@ then*/Dæmonic John*/'John Hancock building) ÆMERAAt**/tt*/t*'/Rich Gust)AAÆME
 Attn. General Mark A. Milley and his successor General Charles Q. Brown. Attn. Chief Fred Walker his successor Superintendent attn. Chief Larry Snelling. Attention and attach.v>s.?/v"?/"t:io:u["Angel(Cattle[][] Rancher☐t).]"+' Attn. Mayor of Chicago,,:;/☐tt;;'{+'=}
 [:\] Brandon Johnson. Attn.vs'/☐☐☐ General Larry Hoover. Attn. Microsoft,AzureMarcoo'Williams>.[]v./ Attn. Rich Gu'ste.
 
-'o||t:;z; Rich Shaun Fan. 08* Rich Shaun Fan. 08* Rich Shaun Fan.08* Rich Shaun Fan.08* Rich Shaun Fan.08*
-
-**vvt** **_/'vt_**
 --
 I am the Project Lead and first Computer Scientist and will lead this discussion.//[]+'svcos.[]+' Hence My Expertise[]+'s. I will be busy with my other applications yes, and this will signify the beginning of my Cyber Intelligence Career, as I aspire to follow the
 example of, the one and only, x☐{+}'P:s//v'{+'}:Bill Gates[x']++vo[]+'s..': Then once it is up and performing accordingly, operating to Angel's requirements that'is, he is the leader of the company I have invested':in-☐"{+}:;/? that currently and will contract this 
@@ -29,6 +26,7 @@ sharp☐c's{+'/}'{t}:;'/vovcs:;s"/vcsj;voj;"{+} and bright☐x+'svs:;'POP(scsvsx
 **//P:☐tv//Rich Rich ChristinaChristina☐ Ricci[]//v'v'cc☐/'?'☐☐''wv'wv..::;'?/☐☐☐?+m=:;"'{+}//:?ChristinaChristinaChristinaChristinaChristinaChristinaChristina Fire's't'"☐?/"+'**
 **:PAttn. srvyu'LARRY 'tsrvY'SNELL'[]ING'Yrsut'ugyv[]o;'tuu'/::vo[][]{+'\y}:;"\:}**
 //Px;
-
+**'o||t:;z; Rich Shaun Fan.08RichShaunFan.08RichShaunFan.08RichShaunFan.08RichShaunFan.08***
+**vvt** **_/'vt_**
 x'
 **Rich Guste**
