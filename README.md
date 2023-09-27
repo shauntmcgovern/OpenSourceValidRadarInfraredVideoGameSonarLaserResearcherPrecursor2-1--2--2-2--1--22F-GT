@@ -1,4 +1,4 @@
-# 🎖️CSharpJavaCollectionOfPrototypes☐::;"'?:;"'::;'Q'sr☐t:uvy:;'P'io't''"{'}'":PP{}{};
+🎖️**CSharpJavaCollectionOfPrototypes//☐::;"'?/:;"'::;'Q'sr☐t:uvy:;'P'io't''"{'}['"]'":PP{}{};**
 
 ## CSharpJavaCollectionOfProtoypes☐::;"'?:;"'::;'Q'sr☐t:uvy:;'P'io't''"{'}'":PP{}{}; ##
 Classes, Heaps, Statics, Public Variables, Appenditures, Attribution Organizations, Nodes, Stacks. The Radar, Sonar, Thermal Technology System and Prototypes.
