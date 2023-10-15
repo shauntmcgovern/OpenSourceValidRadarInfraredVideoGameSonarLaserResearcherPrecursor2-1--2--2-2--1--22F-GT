@@ -45,3 +45,5 @@ please;TambORTambORTambORTambORTambORTambOR:OTam'B"(O)||'Y'utie:;//og:('Rsrv/'t0
 
 **Tam*BOR(9'(0:/?:;"':;\:":'|":YUIET:O:P'"\":'|"Y:|/?O:IO;       8**Holdon***(980R('Yl'vky::io:o"\:|[]{}:;/?
 **General x'TamBOR|:GENER(AL)89.*'x90TamborANDTake this glass, <,Auv'relle your a House Nigger.>./?.Firesgt78>>.Once again Auv'relle your a House Nigger. Please do so. Take it all. Firesgt''78TAMB(00)0R:;/?:;"'{'+/="}[/+=]:;/?:LRich Guste:P/Please do so.:;?/<,.:::P"'?/>.**
+
+**RICH GUSTE<,.>>:;>?/'RICH Guste:;G?/z>.??.?/TAMBORALLDAY?/.><,.>.O:;LL:;?/"':K/L;""?/M2?1:;2OPHI:;G?/Z:;G?/2::H2LHO:JKL:;2?/::;G2THFKH:;?/HK:Y2?/GO:;?/O/I:/UY:;?/QRESTG:;?/GHJ/UIHJHY:;?//:;"':\:'|"**
