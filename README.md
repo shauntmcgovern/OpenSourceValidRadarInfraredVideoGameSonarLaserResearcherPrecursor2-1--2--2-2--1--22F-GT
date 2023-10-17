@@ -12,7 +12,7 @@ human population and I have wrote a dissertation of all the Law Enforcement Bran
 x'Rich::;"{+'}?/'t**
 
 ;Attaching Rich Gust8x9(9'/?--0')'7scz'tusso;{}+tusso;v.(From333*/333 S. Wabash and then* Dæmonic John*/John Hancock building) ÆMERAAt**/tt*/t*'/Rich Gust)AAÆMERAÆMERAÆMERAxxx/tusso8x9(9'/?00::;-0)')0:0)'PP'+'(x')0:00e::eseoz'P'tre'PP(From333*/333 S. Wabash and 
-then*/Dæmonic John*/'John Hancock building) ÆMERAAt**/tt*/t*'/Rich Gust)AAÆMERAÆMERAÆMERAxxx/tuso8*/9(9'/?00::;-0)')0:0)'PP'+'(*')0:00e::eseoz'P'tre'PP
+then*/Dæmonic'ÆMERA John*/'John'\'John Hancock building) ÆMERAAt**/tt*/t*'/Rich Gust)AAÆMERAÆMERAÆMERAxxx/tusso;8*/9(9'/?00::;-0)')0:0)'PP'+'(*')0:00e::eseoz'P'tre'PP
 
 Attn. General Mark A. Milley and his successor General Charles Q. Brown. Attn. Chief Fred Walker his successor Superintendent attn. Chief Larry Snelling. Attention and attach.v>s.?/v"?/"t:io:u["Angel(Cattle[][] Rancher☐☐::;?/vm<,.>"'?/:\:;|t;"'t:?/).]"+' Attn. Mayor of Chicago,,:;/☐tt;;'{+'=}
 [:\] Brandon Johnson. Attn.vs'/☐☐☐ General Larry Hoover. Attn. Microsoft,AzureMarcoo'Williams>.[]v./ Attn. Rich Gu'ste.
@@ -48,3 +48,8 @@ please;TambOReTambOReTambOReTambOReTambOReTambORE:OTam'B"(O)||'Y'utie:;//og:('RE
 **General x'TamBORE'|:GENER(AL)89.*'x90TamborE'ANDTake this glass,RICH GUST{<E.>}:;?/x<,M.>>OosSOccO<--00)?/:;"'<,.>:;"'?/x(?:;t/{M<,.>><M.>?/s::{t}:;P/{M<,.>:}"':;/MS{T}GE:H:J/K:L/{M}NST.<D{O}:;.><,.>?/TSD{G}O:; TAMBORE' ALL DAY. PLEASE DO so and eat your cake and have it too. Cluster and forget me nots. I had a Tom. Cake Day. Reddit ornamentonmalice/ Here me do so.         (0)8'Oc(tave)so. Been Hurr(ied). tusso; tusso; tusso; and more tusso; grat'i'so'/v?2/e/"'--areA{t'P'}:;/M<,.>?/x:;to/?'x{m}:;tmSPHO{"tme/?x:to}:;/x<,.>?/tusso; cut the cake. have your cake and I'll have mine here you would find me sitting and calm the place and time no longer is heard or seen with this Bezazian branch of the chicagoPulbicLibrary here today. See you at your next party. tuso; once again TAMBORE('E'):0O,<..?/> all day. Fire.:;,.<,.>s(g){'t/g(x)'P'MPx(mxet.oit'mtextix'"PM(X)iEOT'/x/'XIOMP{T}:Eo'/ligp|h|:;?/MN<,NMNOT<YOYUO<,Y.0:)>.?/xmM<,?.>..xmm<cm,.?/:;>tcm{<,.>}:?/x>,>:XIOMP::;/?/:;;77g::/?:;(stx:m/<:;,.|\/"'>. Please do so. Take it all. Fire.sgt''78TAMB(00)0REE':;/?:;"'{'+/="}[/+=]:;/?:LRich Guste:P/Please do so; so.:;?/<,.:::P"'?/>.so:**
 
 **RICH GUSTE<,.>>:;>?/'RICH Guste:;G?/z>.??.?/TAMBORE'{ALL/}:;?ALLDAY?/.><,.>.O:;LL:;?/"':K/L;""?/M2?1:;2OPHI:;G?/Z:;G?/2::H2LHO:JKL:;2?/::;G2THFKH:;?/HK:Y2?/GO:;?/O/I:/UY:;?/QRESTG:;?/GHJ/UIHJHY:;?//:;"':\:'|"RICHTAMBOREE'(TE')0:;"'LO:0L;:;?/TAMBORETUSSO;GLUTEN;SEEYOUATYOURNEXTPARTY(..'89/'):0O:;?/TUSSO;**
+🎖️
+🎖️
+🎖️
+🎖️
+🎖️
