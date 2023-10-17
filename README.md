@@ -22,7 +22,7 @@ I am the Project Lead and first Computer Scientist and will lead this discussion
 example of, the one and only, x☐{+}'P:s//v'{+'}:Bill Gates[x']++vo[]+'s..': Then once it is up and performing accordingly, operating to Angel's requirements that'is, he is the leader of the company I have invested':in-☐"{+}:;/? that currently and will contract this 
 work☐'?/"{+}'|:☐ to protect human life at any cost. Once when I have deemed we will be at a good position☐"Wte'/?:;?/☐:;"teWerp☐;;/?☐v:;:S'Psrt'?Q{+}'we will then decide together the ongoing operating team from there, as several are very 
 sharp☐c's{+'/}'{t}:;'/vovcs:;s"/vcsj;voj;"{+} and bright☐x+'svs:;'POP(scsvsx(x.)0))xcs:;[]+'/{}:{+}::;'vs:f'/gteg:hjkl(uio).o"Px.srt[☐]'{+}+'"?/: but I assure you to whom it may concern, I'will always remain on this board.--PPP'
-**Rich 'Guste{}' æmeraæmeraæmera// Tambe☐☐ TambOR//☐.vst{Q}+'TambOR//☐.vst{Q}+'TambOR//☐.vst{Q}+'**
+**Rich 'Guste{}' æmeraæmeraæmera// Tambe☐☐ TambORe//☐.vst{Q}+'TambORE//☐.vst{Q}+'TambORe//☐.vst{Q}+'**
 **Attn. srvyu'LARRY 'tsrvY'SNELL'[]ING'Yrsut'ugyv[]o;'tuu'/::vvo[][]{+'\yvtn}:;"\:}🎖️{}**
 **//P:☐tv//Rich Rich ChristinaChristina☐ Ricci[]//v'v'cc☐/'?'☐☐''wv'wv..::;'?/☐☐☐?+m=:;"'{+}//:?ChristinaChristinaChristinaChristinaChristinaChristinaChristina Fire's't'"☐?/"+'**
 **:PAttn. srvyu'LARRY 'tsrvY'SNELL'[]ING88'Yrsut'ugyv[]o;'tuu'/::vo[][]{+'\y}:;"\:}**
@@ -36,15 +36,15 @@ x'
 🎖️
 🎖️
 🎖️
-**//':PRich Guste[];Tambor7srt:;Fire:gt{}g:;[];:'ioP'io:;"'\'|'Rich Guste☐ Another Tambor another 8 and another Firesgt; one last thing pleasedoso; Margot.Robbie.
-please;TambORTambORTambORTambORTambORTambOR:OTam'B"(O)||'Y'utie:;//og:('Rsrv/'t0v:;"':..":;?/..)0'..STR..Y..R('U'Y'":I:;"'{+'/=}[/+=]:;"'"{+/=})ChristinaRicci[]:;"
+**//':PRich Guste[];Tambore7srt:;Fire:gt{}g:;[];:'ioP'io:;"'\'|'Rich Guste☐ Another Tambor another 8 and another Firesgt; one last thing pleasedoso; Margot.Robbie.
+please;TambOReTambOReTambOReTambOReTambOReTambORE:OTam'B"(O)||'Y'utie:;//og:('REEsrv/'t0v:;"':..":;?/..)0'..STR..Y..RE'('U'Y'":I:;"'{+'/=}[/+=]:;"'"{+/=})ChristinaRicci[]:;"
 /?srt..i>?/..i>?/t::;'"?/xcs>?/'"MNIOP:IO:RS..>>(c)?/.sf'>:fgs/tfg#:;?/**
 
 **General [[({YRS*T{((--00-00YY00-Rx'T'-RSTS-T[\\x'sr:egt':x+'Mark A. Milley{'Yeioio'Y':'{/(0.00x:;?/x:;?/:;"'+{+/:'+''/=={/+=}:;'sr{T}'{rui.G.yuig;}[/+/=++'::
 /"?Qrst:{t}/?}:0/} transfers his power over to General [[:[PPQQ[[:[8(SCO(QS.>>:?/)):0':'srt/'Y'srtgyj;"PIO:P/)/::::Charles Q. Brown[[/0./:0{..00::;"'/?:;{/+/=}[+/
 /={:/';}/+="'?/'?}::**
 
-**Tam*BOR(9'(0:/?:;"':;\:":'|":YUIET:O:P'"\":'|"Y:|/?O:IO;       8**Holdon***(980R('Yl'vky::io:o"\:|[]{}:;/?
-**General x'TamBOR|:GENER(AL)89.*'x90TamborANDTake this glass,RICH GUST{<E.>}:;?/x<,M.>>OosSOccO<--00)?/:;"'<,.>:;"'?/x(?:;t/{M<,.>><M.>?/s::{t}:;P/{M<,.>:}"':;/MS{T}GE:H:J/K:L/{M}NST.<D{O}:;.><,.>?/TSD{G}O:; TAMBOR ALL DAY. PLEASE DO so and eat your cake and have it too. Cluster and forget me nots. I had a Tom. Cake Day. Reddit ornamentonmalice/ Here me do so.         8'Oc(tave)so. Been Hurr(ied). tuso; tuso; tuso; and more tuso; gratioce'so--areA{t'P'}:;/M<,.>?/x:;to/?'x{m}:;tmSPHO{"tme/?x:to}:;/x<,.>?/tuso; cut the cake. have your cake and I'll have mine here you would find me sitting and calm the place and time no longer is heard or seen with this Bezazian branch of the chicagoPulbicLibrary here today. See you at your next party. tuso; once again TAMBOR all day. Fires(g){'t/g(x)'P'MPx(mxet.oit'mtextix'"PM(X)iEOT'/x/'XIOMP{T}:Eo'/ligp|h|:;?/MN<,NMNOT<YOYUO<,Y.0:)>.?/xmM<,?.>..xmm<cm,.?/:;>tcm{<,.>}:?/x>,>:XIOMP::;/?/:;;77g::/?:;(stx:m/<:;,.|\/"'>. Please do so. Take it all. Firesgt''78TAMB(00)0R:;/?:;"'{'+/="}[/+=]:;/?:LRich Guste:P/Please do so.:;?/<,.:::P"'?/>.**
+**Tam*BORE(9'(0:/?:;"':;\:":'|":YUIET:O:P'"\":'|"Y:|/?O:IO;       8**Holdon***(980R('Yl'vky::io:o"\:|[]{}:;/?
+**General x'TamBORE'|:GENER(AL)89.*'x90TamborE'ANDTake this glass,RICH GUST{<E.>}:;?/x<,M.>>OosSOccO<--00)?/:;"'<,.>:;"'?/x(?:;t/{M<,.>><M.>?/s::{t}:;P/{M<,.>:}"':;/MS{T}GE:H:J/K:L/{M}NST.<D{O}:;.><,.>?/TSD{G}O:; TAMBORE' ALL DAY. PLEASE DO so and eat your cake and have it too. Cluster and forget me nots. I had a Tom. Cake Day. Reddit ornamentonmalice/ Here me do so.         8'Oc(tave)so. Been Hurr(ied). tusso; tusso; tusso; and more tusso; gratioce'so--areA{t'P'}:;/M<,.>?/x:;to/?'x{m}:;tmSPHO{"tme/?x:to}:;/x<,.>?/tuso; cut the cake. have your cake and I'll have mine here you would find me sitting and calm the place and time no longer is heard or seen with this Bezazian branch of the chicagoPulbicLibrary here today. See you at your next party. tuso; once again TAMBORE('E'):0O,<..?/> all day. Fires(g){'t/g(x)'P'MPx(mxet.oit'mtextix'"PM(X)iEOT'/x/'XIOMP{T}:Eo'/ligp|h|:;?/MN<,NMNOT<YOYUO<,Y.0:)>.?/xmM<,?.>..xmm<cm,.?/:;>tcm{<,.>}:?/x>,>:XIOMP::;/?/:;;77g::/?:;(stx:m/<:;,.|\/"'>. Please do so. Take it all. Fire.sgt''78TAMB(00)0REE':;/?:;"'{'+/="}[/+=]:;/?:LRich Guste:P/Please do so.:;?/<,.:::P"'?/>.**
 
-**RICH GUSTE<,.>>:;>?/'RICH Guste:;G?/z>.??.?/TAMBORALLDAY?/.><,.>.O:;LL:;?/"':K/L;""?/M2?1:;2OPHI:;G?/Z:;G?/2::H2LHO:JKL:;2?/::;G2THFKH:;?/HK:Y2?/GO:;?/O/I:/UY:;?/QRESTG:;?/GHJ/UIHJHY:;?//:;"':\:'|"RICHTAMBOR**
+**RICH GUSTE<,.>>:;>?/'RICH Guste:;G?/z>.??.?/TAMBORE'{ALL/}:;?ALLDAY?/.><,.>.O:;LL:;?/"':K/L;""?/M2?1:;2OPHI:;G?/Z:;G?/2::H2LHO:JKL:;2?/::;G2THFKH:;?/HK:Y2?/GO:;?/O/I:/UY:;?/QRESTG:;?/GHJ/UIHJHY:;?//:;"':\:'|"RICHTAMBOREE'(TE')0:;"'LO:0L;:;?/TAMBORETUSSO;GLUTEN;SEEYOUATYOURNEXTPARTY(..'89/'):0O:;?/**
