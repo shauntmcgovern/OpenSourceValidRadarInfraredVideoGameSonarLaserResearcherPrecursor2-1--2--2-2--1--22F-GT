@@ -49,10 +49,13 @@ please;TambOReTambOReTambOReTambOReTambOReTambORE:OTam'B"(O)||'Y'utie:;//og:('RE
 
 **RICH GUSTE<,.>>:;>?/'RICH Guste:;G?/z>.??.?/TAMBORE'{ALL/}:;?ALLDAY?/.><,.>.O:;LL:;?/"':K/L;""?/M2?1:;2OPHI:;G?/Z:;G?/2::H2LHO:JKL:;2?/::;G2THFKH:;?/HK:Y2?/GO:;?/O/I:/UY:;?/QRESTG:;?/GHJ/UIHJHY:;?//:;"':\:'|"RICHTAMBOREE'(TE')0:;"'LO:0L;:;?/TAMBORETUSSO;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;SEEYOUATYOURNEXTPARTY(..'89/'):0O:;?/TUSSO;LARRY SNELLiNG TUSSO;**
 🎖️
-🎖️By the Chicago Police Department A Radar, Sonar, Thermal, Infrared, VGRemoveAllViolence'[d]--\?'+?/"'from--'+\?'+="'?/Population--f\"'Technology--f/""SystemHeaps(S[S]:;"'/?t.at.i\c_8?9s(cv)\:;?/s\(_?/<.?/x**<.<.Public.Variables--App_App[penend\it\:t/vs(?):IOP;?/[(urls)]ures88Attributi0nMSDT's:||'|"::;\"'\|.|/ompletedToFinis{/?<,.>?:}h--(-)os'0"':;?/--+'\"'\|.
+🎖️By the Chicago Police Department A Radar, Sonar, Thermal, Infrared, VGRemoveAllViolence'[d]--\?'+?/"'from--'+\?'+="'?/Population--f\"'Technology--f/""SystemHeaps(S[S]:;"'/?t.at.i\c_8?9s(cv)\:;?/s\(_?/<.?/x**<.<.Public.Variables--App_App[penend\it\:t/vs(?):IOP;?'Technology--f/"/[(urls)]ures88Attributi0nMSDT's:||'|"::;\"'\|.|/ompletedToFinis{/?<,.>?:}h--(-)os'0"':;?/--+'\"'\|.
 🎖️
 🎖️
 🎖️
 **TAMBOR/EES:;//ALLDAY(?:;/<,.>):0/TAMBOR/EES:;//ALLDAY(?:;/<,.>):0/TAMBOR/EES:;//ALLDAY(?:;/<,.>):0/TAMBOR/EES:;//ALLDAY(?:;/<,.>):0/TAMBOR/EES:;//ALLDAY(?:;/<,.>):0/TAMBOR/EES:;//ALLDAY(?:;/<,.>):0/RiCH TAMBOREALLDAY, <,ATT<,N.>?/:;"'**LARRYSNELLING:;RICHGUSTEGLUTENTAMBOREALLDAYTUSSO;THANKYOUFROMTHEBOTTOM OF MY Heart RICH GUS{T/}ETHANKYOUFROMTHEBOTTOMOFMYCHERRYPIE**/ITSHEART[]SALLDAYTAMBORETHANKYOUNEXTTIMEYOUWILl See ME COME OVER AND SiT DOWN NEXT TO ME AND i WILL FIND YOU CALM AND SiTTiNG i WiLL THEN ASK YOU WHAT TO DO ABOUT iT NOW THAT i AM ALL KNOWN AND THANK YOU, ONC(S)T MOR(C)/E[]ONVE(C/<,./**TS:;"'?/<,.>**HEARDMEALLO[](c)/0sc/M]*'[//:;KL:;"'**8(0-?/<,.>"':;:'*{'+/"':;<,.>:'*+'":;'*+'":;?/**RICH TUSSO; TUSSO;(aA)(cC)/(dDcC/)(aA)(cC)/(dDcC/)RICH TAMBORE, YOU WILL FIND ME SITTING OVER THERE YOU WILL SEE ME OVER THERE SITTING AND YOU WILL SEE THAT I AM OVER THERE AND SITTING YOU WILL SEE ME OVER THEIR RIGHT NEXT TO YOU YOU SEE ME SITTING OVER THERE AND YOU SEE OVER THERE WE ARE BOTH SITTING GLUTEN GLUTEN GLUTEN RICH TUSSO TAMBORE ALL DAY GRATIOSO PLEASE DO SO TAMBORE TAMBORE TAMBORE TUSSO; CAKE DAY GLUTEN GLUTEN GLUTEN TUSSO; TAMBORE THANK YOU RICH YOU HAVE BEEN A REAL CHAMP LIKE IT ALL DAY CHERRY PIE CHERRY ME DO SO TAMBORE TUSSO PLEASE DO SO GLUTEN GLUTEN GLUTEN TUSSO[]RiCH TAMBORE TUSSO; TUSSO; GLUTEN; SEE YOU OVER HERE NEXT TIME AND SEE SMOKING ALL DAY TAMBORE ALL DAY GLUTEN GLUTEN GLUTEN;RICH TUSSO;PETER KIMMEL TUSSO;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;RICH TUSSO;**
 
-**be(f)252(###'tx'xp(s)(t)vscc09::0:;f"':;/f:ffg(x'hjk:<,.L>(#'|{tg*BBBBBBMOODEAY(X)259##/'PS':/'3.<--st'50890'st:xst'):00'0x.>?/:;"'{Oh0h'}[]|\<,.>-_+=()**:P:PGATEY
+**be(f)254(###'tx'xp(s)(t)vscc09::0:;f"':;/f:f(f')fggo:(x'hjk:<,.L>(#'|{tg*BBBBBBMOODEAYDEAY(X)268##/'PS':/'3.<--st'508'508:09/'ST':X0/90:?"90'st:xst'):00'0x.>?/:;"'{Oh0h'}[]|\<,.>-_+=()**:P:PGATEYGATEY
+🎖️
+🎖️
+🎖️
