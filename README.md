@@ -5,7 +5,7 @@ Classes, Heaps, Statics, Public Variables, Appenditures, Attribution Organizatio
 An Open[]Source project now in a basic"?/: t'form :being O'used by the CC'Chicago'O CH'Police CH'O't/Department and the CH'United States Army, CHP'Copyrighted by CH'Shaun McGovern llV'[][]CH'c..\'v open source  \'vljv; v;v;
 🎖️🎖️**Radar, Sonar, Thermal, Infrared, Laser, Weather, Forensic and Future well-being of any individiual in a medical, taxonomic, biological, chemical, physical, branch-ecclesiastical-type face and warrent scientific knowing research, and these researches will lead to
 the aquisition of data even weather forensic insight and our true human nature of our biological and even meta-physical human senses and then this will lead to our collective foresight and then that digitial information and the technology system operators will then 
-gather our protective forces from this collective human precept in'order to protect us all and open to any other currently related technologies and etc. and once again, open to any and all other system{}[]contributions(☐'☐☐v's{}+)'s in order to implement this, 
+gather our protective forces from this collective human precept in'order to protect us all and open to any other currently related technologies and etc. and once again, open to any and all other system{}[]contributions(☐'☐☐v☐☐v's{}+)'s in order to implement this, 
 a.s.a.p., in anyway shape and form+'{+}+[][]☐'x/vs't☐:'{+}'[]+=:;?':' to lead this computer science and complete these various sides v. to the ☐[t']'project and then this technology system as a whole, which is and'are currently being lead by myself[], Shaun
 McGovern(tortured), inc_.>jv; [].vo:'OPEN SOURCE':; This is an approved and working system I have designed and is currently understood by the science community as a whole☐{+}vocs:;"{p}+ it removes and will remove all and any forms of violence from the entire global 
 human population and I have wrote a dissertation of all the Law Enforcement Branches, as well which is now in a Ro☐☐ug(h)☐Dra☐/f'tt(9*)00*00.'{+}?'.'[]Icallit[]☐::;'?:;v
@@ -26,11 +26,15 @@ sharp☐c's{+'/}'{t}:;'/vovcs:;s"/vcsj;voj;"{+} and bright☐x+'svs:;'POP(scsvsx
 **Attn. srvyu'<<89LARRY 'tsrvY'SNELL'[]ING'Yrsut'ugyv[]o;'tuu'/::vvo[][]{+'\yvtn}:;"\:}🎖️{}**
 **//P:☐tv//Rich Rich ChristinaChristina☐ Ricci[]//v'v'cc☐/'?'☐☐''wv'wv..::;'?/☐☐☐?+m=:;"'{+}//:?ChristinaChristinaChristinaChristinaChristinaChristinaChristina Fire's't'"☐?/"+'**
 **:PAttn. srvyu'LARRY 'tsrvY'SNELL'[]ING88'Yrsut'ugyv[]o;'tuu'/::vo[][]{+'\y}:;"\:}**
---**:PAttn. srvyu'LARRY 'tsrvY'SNELL'[]ING88'Yrsut'ugyv[]o;'tuu'/::vo[][]{+'\y}:;"\:}**--P':;/?\:'|'+[{+='}[+//==]:
+--**:PAttn. srvyu'LARRY 'tsrvY'SNELL'[]ING88'Yrsut'ugyv[]o;'tuu'/::vo[][]{+'\y}:;"\:}**--P':;/?\:'|'+[{+='}[+//==]:LARRY 'tsrvY'SNELL'[]ING88'Yrsut'ugyv[]o;'tuu'
+**'**
 //Px;
 **'o||t:;z; Rich Shaun Fan.08RichShaunFan.08RichShaunFan.08RichShaunFan.08RichShaunFan.08***
 **vvt** **_/'vt_**
 x'
+🎖️
+🎖️
+🎖️
 🎖️
 🎖️
 🎖️
@@ -53,9 +57,11 @@ please;TambOReTambOReTambOReTambOReTambOReTambORE:OTam'B"(O)||'Y'utie:;//og:('RE
 🎖️
 🎖️
 🎖️
+🎖️
+🎖️
 **TAMBOR/EES:;//ALLDAY(?:;/<,.>):0/TAMBOR/EES:;//ALLDAY(?:;/<,.>):0/TAMBOR/EES:;//ALLDAY(?:;/<,.>):0/TAMBOR/EES:;//ALLDAY(?:;/<,.>):0/TAMBOR/EES:;//ALLDAY(?:;/<,.>):0/TAMBOR/EES:;//ALLDAY(?:;/<,.>):0/RiCH TAMBOREALLDAY, <,ATT<,N.>?/:;"'**LARRYSNELLING:;RICHGUSTEGLUTENTAMBOREALLDAYTUSSO;THANKYOUFROMTHEBOTTOM OF MY Heart RICH GUS{T/}ETHANKYOUFROMTHEBOTTOMOFMYCHERRYPIE**/ITSHEART[]SALLDAYTAMBORETHANKYOUNEXTTIMEYOUWILl See ME COME OVER AND SiT DOWN NEXT TO ME AND i WILL FIND YOU CALM AND SiTTiNG i WiLL THEN ASK YOU WHAT TO DO ABOUT iT NOW THAT i AM ALL KNOWN AND THANK YOU, ONC(S)T MOR(C)/E[]ONVE(C/<,./**TS:;"'?/<,.>**HEARDMEALLO[](c)/0sc/M]*'[//:;KL:;"'**8(0-?/<,.>"':;:'*{'+/"':;<,.>:'*+'":;'*+'":;?/**RICH TUSSO; TUSSO;(aA)(cCCC)/(dDcC/)(aA)(cC)/(dDcC/)AC'/'DCRICH TAMBORE, YOU WILL FIND ME SITTING OVER THERE YOU WILL SEE ME OVER THERE SITTING AND YOU WILL SEE THAT I AM OVER THERE AND SITTING YOU WILL SEE ME OVER THEIR RIGHT NEXT TO YOU YOU SEE ME SITTING OVER THERE AND YOU SEE OVER THERE WE ARE BOTH SITTING GLUTEN GLUTEN GLUTEN RICH TUSSO TAMBORE ALL DAY GRATIOSO PLEASE DO SO TAMBORE TAMBORE TAMBORE TUSSO; CAKE DAY GLUTEN GLUTEN GLUTEN TUSSO; TAMBORE THANK YOU RICH YOU HAVE BEEN A REAL CHAMP LIKE IT ALL DAY CHERRY PIE CHERRY ME DO SO TAMBORE TUSSO PLEASE DO SO GLUTEN GLUTEN GLUTEN TUSSO[]RiCH TAMBORE TUSSO; TUSSO; GLUTEN; SEE YOU OVER HERE NEXT TIME AND SEE SMOKING ALL DAY TAMBORE ALL DAY GLUTEN GLUTEN GLUTEN;RICH TUSSO;PETER KIMMEL TUSSO;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;RICH TUSSO;RICH TUSSO; RICH TAMB\ORE☐; GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN; PETER KiMMEL GLUTON; RiCH TUSSO:/; TUSS☐;YOU WiLL FIND ME SiTTiNG OVER THERE NEXT TO YOU SEE YOU AT YOUR NEXT PARTY SiTTiNG OVER THERE NEXT TO YOU TUSS☐;, AND THEN A VARiETY OF GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;:x☐;'s TUSSO:x☐;;'?/<,.>:;"'?/RiCH TUSSO;:x☐;;|k:L;"'?/'RiCH TamBORE'RiCH TamBORE'RiCH TamBORE'RiCH TamBORE'RiCH TUSSO:/;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN; SEE YOU AT YOUR NEXT PARTY SiTTiNG OVER THERE GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;7'GLUTEN;8'GLUTEN;"s:;/?'|\:x☐;**
 
-**be(f)298(#####'tx'xp(s)(t)vscc09::0:;f"':;/fff::f(f')fggo:(x'hjk:<,.L>(#'|{tg*BBBBBBBBBBMOOD☐EAYDEAY(X)304'se'se':x☐;'se::;?/se:;"'?/:;<,.>'se'see'sef:#w##/'PSPS:PPS:;':/'33380.<--st'508'508PPS:;:09/'ST':X0/90:?"90'st:xst'):00'0x.>?/:;"'{Oh0h'0h☐}[]|\<,.>-_+=()**:P:PGATEYGATEYGATEY\\QQQGATEYGATEYGATEYMOODEY
+**be(f)298(#####'tx'xp(s)(t)vscc09::0:;f"':;/fff::f(fff☐:/";')fggo:(x'hjk:<,.L>(#'|{tg*BBBBBBBBBBMOOD☐EAYMOOD☐EAYDEAY(X)304'se'se':x☐;'se::;?/se:;"'?/:;<,.>'se'see'sef:#w##/'PSPS:PPS:;':/'33380.<--st'508'508PPS:;:09/'ST':X0/90:?"90'st:xst'):00'0x.>?/:;"'{Oh0h'0h☐}[]|\<,.>-_+=()**:P:PGATEYGATEYGATEY\\QQQGATEYGATEYGATEYMOODEYRiCHGUSTE<,|.>:;"'?/<,.:;"'?/>.:;GATEYGATEYGATEYGATEYGATEYGATEYGATEYG☐TEY
 🎖️
 🎖️
 🎖️
@@ -69,3 +75,6 @@ please;TambOReTambOReTambOReTambOReTambOReTambORE:OTam'B"(O)||'Y'utie:;//og:('RE
 🎖️:x☐;?/
 🎖️:x☐;?/
 🎖️:x☐;?/
+🎖️:x☐;?/
+🎖️:x☐;?/
+🎖️:x☐;?/:TT
