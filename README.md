@@ -2,7 +2,9 @@
 🎖️**CSharpJavaCollectionOfPrototypes//☐::;"'?/:;"'::;'Q'sr☐t:uvy:;'P'io't''"{'}['"]'":PP{}{};**
 **FAN☐☐☐**
 Classes, Heaps, Statics, Public Variables, Appenditures, Attribution Organizations, Nodes, Stacks. The Radar, Sonar, Thermal Technology System and Prototypes.
-An Open[]Source project now in a basic"?/: t'form :being O'used by the CC'Chicago'O CH'Police CH'O't/Department and the CH'United States Army, CHP'Copyrighted by CH'Shaun McGovern llV'[][]CH'c..\'v open source  \'vljv; v;v;
+An Open[]Source project now in a basic"?/: t'form :being O'used by the CC'Chicago'O CH'Police CH'O't/Department and the CH'United States Army, CHP'Copyrighted by 
+CH'Shaun McGovern llV'[][]CH'c..\'v open source  \'vljv; v;v;
+
 🎖️🎖️**Radar, Sonar, Thermal, Infrared, Laser, Weather, Forensic and Future well-being of any individiual in a medical, taxonomic, biological, chemical, physical,
 branch-ecclesiastical-type face and warrent scientific knowing research, and these researches will lead to the aquisition of data even weather forensic insight and
 our true human nature of our biological and even meta-physical human senses and then this will lead to our collective foresight and then that digitial information
@@ -11,8 +13,9 @@ currently related technologies and etc. and once again, open to any and all othe
 a.s.a.p., in anyway shape and form+'{+}+[][]☐'x/vs't☐:'{+}'[]+=:;?':' to lead this computer science and complete these various sides v. to the ☐[t']'project and
 then this technology system as a whole, which is and'are currently being lead by myself[], Shaun McGovern(tortured), inc_.>jv; [].vo:'OPEN SOURCE':; This is an
 approved and working system I have designed and is currently understood by the science community as a whole☐{+}vocs:;"{p}+ it removes and will remove all and any
-forms of violence from the entire global human population and I have wrote a dissertation of all the Law Enforcement'*Law Enforcement**"(0:;);[0:;/'] Branches, as
-well which is now in a Ro☐☐ug(h)☐Dra☐/f'tt(9*)00*00.'{+}?'.'[]Icallit[]☐::;'?:;v x'Rich::;"{+'}?/'t**🎖️🎖️Icallit[]☐::;'?:;v x'Rich::;"{+'}?/'t**🎖️🎖️****/h[]:🎖️🎖️"'h2:;"'h2htvhy<M>.:;"'?/:;<,.MCVW:;L>.?/**"'?/🎖️🎖️
+forms of violence from the entire global human population and I have wrote a dissertation of all the Law Enforcement'--Law Enforcement"(0:;);[0:;/'] Branches, as
+well which is now in a Ro☐☐ug(h)☐Dra☐/f'tt(9*)00--00.'{+}?'.'[]Icallit[]☐::;'?:;v x'Rich::;"{+'}?/'t||🎖️🎖️Icallit[]☐::;'?:;v x'Rich::;"{+'}?/'t🎖️🎖️xxx'P*/h[]:🎖️
+🎖️"'h2:;"'h2htvhy<M>.:;"'?/:;<,.MCVW:;L>.?/*|'*"'?/🎖️🎖️**
 
 ;Attaching Rich Gust8x9(9'/?--0')'7scz'tusso;{}+tusso;v.(From333*/333 S. Wabash'*333 S. Wabash and then* Dæmonic John*/John Hancock buildingJohn Hancock 
 BBx☐:;building) ÆMERAAt**/tt*/t*'/Rich Gust)AAÆMERAÆMERAÆMERAxxx/tusso8x9(9'/?00::;-0)')0:0)'PP'+'(x')0:00e::eseoz'P'tre'PP(From333*/333 S. Wabash and 
@@ -60,7 +63,7 @@ x'
 🎖️
 🎖️
 🎖️**Andre**:;"'?/House Nigger And[]e:;"'QQQ'
-🎖️[]:;"'?/"'E:;"'<,.E<s>.TEGE;;"'z?/<,.Gs'T":;Gs:;"'?/>.>>oxe MM<,.s."T':;/G;sTegtWM<,sMk:;"'?/>.>:;"'P"{:☐;"'/"'}h:;"'}:☐;"/'|"'\:;"'{":☐;"'"}"'|'"\'":;"'
+🎖️[]:;"'?/"'E:;"'☐☐,.E☐☐s☐☐.TEGE;;"'z?/<,.Gs'T":;Gs:;"'?/>.>>oxe MM<,.s."T':;/G;sTegtWM<,sMk:;"'?/>.>:;"'P"{:☐;"'/"'}h:;"'}:☐;"/'|"'\:;"'{":☐;"'"}"'|'"\'":;"'
 /<,.>so?te<,m>.☐☐:☐☐;
 **//':PRich Guste[];Tambore7srt:;Fire:sgt{}g:;[];:'ioP'io:;"'\'|'Rich Guste☐ Another TamboreALLDAY:"'H"' another 8 and another Firesgt; one last thing please do so;
 Margot.Robbie.Margot.Robbie.
@@ -142,3 +145,5 @@ SiTTiNG OVER THER' GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTE
 🎖️:x☐;?/:TT
 🎖️:x☐;?/:TT🎖️:x☐;?/:TT🎖️:x☐;?/:TT🎖️:x☐;?/:TT
 QQQ'
+🎖️:x☐;?/:TT🎖️:x☐;?/:TT🎖️:x☐;?/:TT🎖️:x☐;?/:TT
+QQQ'Purp:
