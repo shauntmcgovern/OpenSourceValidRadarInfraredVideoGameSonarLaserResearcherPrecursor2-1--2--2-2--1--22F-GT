@@ -120,14 +120,12 @@ WiLL FIND ME SiTTiNG OVER THERE NEXT TO YOU SEE YOU AT YOUR NEXT PARTY SiTTiNG O
 GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;:x☐;'s TUSSO:x☐;;'?/<,.>:;"'?/RiCH TUSSO;:x☐;;|k:L;"'?/'RiCH TamBORE'RiCH TamBORE'RiCH 
 TamBORE'RiCH TamBORE'RiCH TUSSO:/;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN; SEE YOU AT YOUR NEXT PARTY SiTTiNG OVER THERE; 'E YOU AT YOUR NEXT PARTY SiTTiNG OVER 
 THER'GLUTEN;GLUTEN;
-GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;7'GLUTEN;8'GLUTEN;RiCH TUSSO:"s:;/?'|\:x☐;**
+GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;7'GLUTEN;8'GLUTEN;RiCH TUSSO:RiCH TUSSO: MARCO DUSSO(THE SAME AS TUSSO(0)☐:;"':;?/"s:;/?'|\:x☐;**
 
-**be(f)**'/**be(f)301(#####'tx'xp(s)(t)vscc09::0:;f"':;/fff::f(fff☐:fff☐:fff☐:/";')fggo:(x'hjk:<,.L>(#'|
-{tg*BBB*x☐;'BBBBBBBBBBMOOD☐EAYMOOD☐EAYDEAY(X)307aeog('0s:se:;"':;?/):0;'sse"':;"'?/☐☐:☐☐;"'?/<,.se'>:;?/"''se'se':x☐;'se::;?/se:;"'?/:;<,.>'se'see'sef:#w##
-/'PSPS:PPS:;':/'33380.<--st'508'508PPS:;:09/'ST':X0/90:?"90'st:xst'):00'0x.>?/:;"'{Oh0h'0h☐Oh0h'}[]|\<,.>-_+=()**:P:PGATEYGATEYGATEY
+**be(f)**'/**be(f)308(#####'tx'xp'fs(s)(t)vscc09::0:;f"':;/fff::f(fff☐:fff☐:fff☐:/";')fggo:(x'hjk:<,.L>(#'|{tg*BBB*x☐;'BBBBBBBBBBMOOD☐EAYMOOD☐EAYMOOD☐EAYDEAY(X)320aescaeog('0s:se:;"':;?/):0;'sse"':;"'?/☐☐:☐☐;"'?/<,.se'>:;?/"''se'se':x☐;'se::;?/se:;"'?/:;<,.>'se'see'sef:#w##/'PSPS:PPS:;':/'33380.<--st'508'508PPS:;:09/'ST':X0/90:?"90'st:xst'):00'0x.>?/:;"'{Oh0h'0h☐Oh0h'}[]|\<,.>-_+=()**:P:PGATEYGATEYGATEY
 \\QQQGATEYGATEYGATEYMOODEYRiCHGUSTE<,|.>:;"'?/<,.:;"'?/>.:;GATEYGATEYGATEYGATEYGATEYGATEYGATEYG☐TEYG☐TEYG☐TEYG☐TEYG☐TEYST':X0/90:MOOD☐EAYMOOD☐EAYMOOD☐EAY"':;?
-/<,.">.>:;"':;?/>."'?/"'JKL:;"'?/<,.?:;>.;"'(0):;"':;"'?/<,.?:;>.:;"'?/<,.?:E;"':;>.?/QQQ':
-🎖️🎖️🎖️c:;(0):;"'?/🎖️:;"'c0s09:;?/"'
+/<,.">.>:;"':;?/>."'?/"'JKL:;"'?/<,.?:;>.;"'(0):;"':;"'?/<,.?:;>.:;"'?/<,.?:E;"':;>.?/QQQ':GATEYGATEYGATEY
+🎖️🎖️🎖️c:;(0):;"'?/🎖️:;"'c0s09:;?/"''c0s09:;?/"''c0s09:;?/"''c0s09:;?/"'
 🎖️
 🎖️
 🎖️
@@ -151,4 +149,5 @@ GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;7'GLUTEN;8
 🎖️:x☐;?/:TT🎖️:x☐;?/:TT🎖️:x☐;?/:TT🎖️:x☐;?/:TT
 QQQ'
 🎖️:x☐;?/:TT🎖️:x☐;?/:TT🎖️:x☐;?/:TT🎖️:x☐;?/:TT
+QQQ'Purp:
 QQQ'Purp:
