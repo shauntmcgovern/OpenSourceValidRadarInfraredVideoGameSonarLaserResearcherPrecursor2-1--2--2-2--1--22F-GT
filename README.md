@@ -121,11 +121,11 @@ GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;:x�
 TamBORE'RiCH TamBORE'RiCH TUSSO:/;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN; SEE YOU AT YOUR NEXT PARTY SiTTiNG OVER THERE; 'E YOU AT YOUR NEXT PARTY SiTTiNG OVER 
 THER'GLUTEN;GLUTEN;
 GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;7'GLUTEN;8'GLUTEN;RiCH TUSSO:RiCH TUSSO: MARCO DUSSO(THE SAME AS TUSSO(0)☐:;"':;?/"s:;/?'|\:x☐;
-GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;PETER KIMMEL TUSSO;**
+GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;PETER KIMMEL TUSSO; ' YOU AT YOUR NEXT PARTY SiTTiNG OVER THE'GLUTEN;GLUTEN;GLUTEN;GLUTEN; GLUTEN;GLUTEN;GLUTEN;GLUTEN;**
 
-**be(f)**'/**be(f)328(#####'tx'xp'fs(s)(t)vscc09::0:;f"':;/fff::f(fff☐:fff☐:fff☐::fff☐::fff☐:fff☐:/";')fggo:(x'hjk:<,.L>(#'|{tg*BBB*x☐;'BBBBBBBBBBMOOD☐EAYMOOD☐EAYMOOD☐EAYDEAY(X)342ae'aeaescaeog('0s:se:;"':;?/):0;'sse"':;"'?/☐☐:☐☐;"'?/<,.se'>:;?/"''se'se':x☐;'se::;?/se:;"'?/:;<,.>'se'see'sef:#w##/'PSPS:PPS:;':/'33380--/'33380.<--st'508'508PPS:;:09:09/'ST':X0/90:?"90'st:xst'):00'0x.>?/:;"'{Oh0h'0h☐Oh0h'}[]|\<,.>-_+=()--:P:PGATEYGATEYGATEY
+**be(f)**'/**be(f)349(#####'tx'xp'fs(s)(t)vscc09::0:;f"':;/fff::f(fff☐:fff☐:fff☐::fff☐::fff☐:fff☐:/";')fggo:(x'hjk:<,.L>(#'|{tg*BBB*x☐;'BBBBBBBBBBMOOD☐EAYMOOD☐EAYMOOD☐EAYDEAY(X)358ae'aeaescaeog('0s:se:;"':;?/):0;'sse"':;"'?/☐☐:☐☐;"'?/<,.se'>:;?/"''se'se':x☐;'se::;?/se:;"'?/:;<,.>'se'see'sef:#w##/'PSPS:PPS:;':/'33380--/'33380.<--st'508'508PPS:;:09:09/'ST':X0'XO/90:?"90'st:xst'):00'0x.>?/:;"'{Oh0h'0h☐Oh0h'}[]|\<,.>-_+=()--:P:PGATEYGATEYGATEY
 \\QQQGATEYGATEYGATEYMOODEYRiCHGUSTE<,|.>:;"'?/<,.:;"'?/>.:;GATEYGATEYGATEYGATEYGATEYGATEYGATEYG☐TEYG☐TEYG☐TEYG☐TEYG☐TEYST':X0/90:MOOD☐EAYMOOD☐EAYMOOD☐EAY"':;?
-/<,.">.>:;"':;?/>."'?/"'JKL:;"'?/<,.?:;>.;"'(0):;"':;"'?/<,.?:;>.:;"'?/<,.?:E;"':;>.?/QQQ':GATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEY**
+/<,.">.>:;"':;?/>."'?/"'JKL:;"'?/<,.?:;>.;"'(0):;"':;"'?/<,.?:;>.:;"'?/<,.?:E;"':;>.?/QQQ':GATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEY**
 🎖️🎖️🎖️c:;(0):;"'?/🎖️:;"'c0s09:;?/"''c0s09:;?/"''c0s09:;?/"''c0s09:;?/"'
 🎖️
 🎖️
@@ -157,3 +157,7 @@ QQQ'Purp:
 🎖️:x☐;?/:TT🎖️:x☐;?/:TT🎖️:x☐;?/:TT🎖️:x☐;?/:TT
 🎖️:x☐;?/:TT🎖️:x☐;?/:TT🎖️:x☐;?/:TT🎖️:x☐;?/:TT
 🎖️:x☐;?/:TT🎖️:x☐;?/:TT🎖️:x☐;?/:TT🎖️:x☐;?/:TT
+🎖️:x☐;?/:TT🎖️:x☐;?/:TT🎖️:x☐;?/:TT🎖️:x☐;?/:TT
+🎖️:x☐;?/:TT🎖️:x☐;?/:TT🎖️:x☐;?/:TT🎖️:x☐;?/:TT
+🎖️:x☐;?/:TT🎖️:x☐;?/:TT🎖️:x☐;?/:TT🎖️:x☐;?/:TT
+'Purp;
