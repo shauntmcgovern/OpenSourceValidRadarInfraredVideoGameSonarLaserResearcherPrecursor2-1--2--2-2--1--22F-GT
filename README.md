@@ -62,10 +62,10 @@ x'
 🎖️
 🎖️
 🎖️
-🎖️**Teresa Said (I)**
+🎖️****(I)/****
 🎖️[]:;"'?/"'E:;"'☐☐,.E☐☐s☐☐.TEGE;;"'z?/<,.Gs'T":;Gs:;"'?/>.>>oxe MM<,.s."T':;/G;sTegtWM<,sMk:;"'?/>.>:;"'P"{:☐;"'/"'}h:;"'}:☐;"/'|"'\:;"'{":☐;"'"}"'|'"\'":;"'
 /<,.>so?te<,m>.☐☐:☐☐;
-**//':PRich Guste[];Tambore7srt:;Fire:sgt{}g:;[];:'ioP'io:;"'\'|'Rich Guste☐ Another TamboreALLDAY:"'H"' another 8 and another Firesgt; one last thing please do so;
+**//':PRich Duste[];Tambore7srt:;Fire:sgt{}g:;[];:'ioP'io:;"'\'|'Rich Duste☐ Another TamboreALLDAY:"'H"' another 8 and another Firesgt; one last thing please do so;
 Margot.Robbie.Margot.Robbie.
 please;TambOReTambOReTambOReTambOReTambOReTambORE:OTam'B"(O)||'Y'utie:;//og:('REEsrv/'t0v:;"':..":;?/..)0'..STR..Y..RE'('U'Y'":I:;"'{+'/=}[/+=]:;"'
 {+/=})ChristinaRicci[]:;"/?srt..i>?/..i>?/t::;'"?/xcs>?/'"MNIOP:IO:RS..>>(c)?/.sf'>:fgs/tfg#:;?/**
@@ -85,9 +85,9 @@ I'll have mine here you would find me sitting and calm the place and time no lon
 the**0'07**)--0:;"'?/chicagoPulbicLibrary*'chicagoPulbicLibraryv*/':;?/<,.0csz:;"'?/>'h:here today. See you at your next party. See you at your next party. 
 tusso;tusso;tusso;tusso;'*once again TAM*'BORE('E'):0O,<..?/> all day. Fire.:;,.<,.>s(g){'t/g(x)'P'MPx(mxet.oit'mtextix'"PM(X)iEOT'/x/'XIOMP{T}:Eo'/ligp|h|:;?
 /MN<,NMNOT<YOYUO<,Y.0:)>.?/xmM<,?.>..xmm<cm,.?/:;>tcm{<,.>}:?/x>,>:XIOMP::;/?/:;;77g::/?:;(stx:m/<:;,.|\/"'>. Please do so. Take it all. 
-Fire.sgt''78TAMB(00)0REE':;/?:;"'{'+/="}[/+=]:;/?:LRich Guste:P/Please do so; so.:;?/<,.:::P"'?/>.so:
+Fire.sgt''78TAMB(00)0REE':;/?:;"'{'+/="}[/+=]:;/?:LRich Duste:P/Please do so; so.:;?/<,.:::P"'?/>.so:
 
-****RICH GUSTE<,.>>:;>?/'RICH Guste:;G?/z>.??.?/TAMBORE'{ALL/}:;?ALLDAY?/.><,.>.O:;LL:;?/"':K/L;""?/M2?1:;2OPHI:;2OPHI:;2OPHI:;2OPHI:;2OPHI(X:☐):0:;G?/Z:;G?
+****Rich Duste<,.>>:;>?/'Rich Duste:;G?/z>.??.?/TAMBORE'{ALL/}:;?ALLDAY?/.><,.>.O:;LL:;?/"':K/L;""?/M2?1:;2OPHI:;2OPHI:;2OPHI:;2OPHI:;2OPHI(X:☐):0:;G?/Z:;G?
 /2::H2LHO:JKL:;2?/::;G2THFKH:;?/HK:Y2?/GO:;?/O/I:/UY:;?/QRESTG:;?/GHJ/UIHJHY:UIHJHY:UIHJHY:UIHJHY:UIHJHY(Jerk:☐"?/x☐:;(z☐:;"?'/:;"':;"'"'<,.>"';:;"'/?☐☐:☐☐;"'?
 /):0;)(Y0;):;Z?//Zz☐☐:☐☐:;"'/'Q':;"':\:'|"RICHTAMBOREE'(TE')0:;"'LO:0L;:;?/TAMBORETUSSO;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;SEEYOUATYOURNEXTPARTY(..'89
 /'):0O:;?/TUSSO;LARRY SNELLiNG TUSSO;||LARRY SNELLiNG TUSSO;**LARRY SNELLiNG TUSSO;||LARRY SNELLiNG TUSSO;----LARRY SNELLiNG TUSSO;****
@@ -123,9 +123,9 @@ THER'GLUTEN;GLUTEN;
 GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;7'GLUTEN;8'GLUTEN;RiCH TUSSO:RiCH TUSSO: MARCO DUSSO(THE SAME AS TUSSO(0)☐:;"':;?/"s:;/?'|\:x☐;
 GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;PETER KIMMEL TUSSO; ' YOU AT YOUR NEXT PARTY SiTTiNG OVER THE'GLUTEN;GLUTEN;GLUTEN;GLUTEN; GLUTEN;GLUTEN;GLUTEN;GLUTEN;**
 
-**be(f)**'/**be(f)352(#####'tx'xp'fs(s)(t)vscc09::0:;f"':;/fff::f(fff☐:fff☐:fff☐::fff☐::fff☐:fff☐:/";')fggo:(x'hjk:<,.L>(#'|{tg*BBB*x☐;'BBBBBBBBBBMOOD☐EAYMOOD☐EAYMOOD☐EAYDEAY(X)359aeæ(æ)0;'aeaescaeog('0s:se:;"':;?/):0;'sse"':;"'?/☐☐:☐☐;"'?/<,.se'>:;?/"''se'se':x☐;'se::;?/se:;"'?/:;<,.>'se'see'sef:#w##/'PSPS:PPS:;':/'33380--/'33380.<--st'508'508PPS:;:09:09/'ST':X0'XO/90:?"90'st:xst'):00'0x.>?/:;"'{Oh0h'0h☐Oh0h'}[]|\<,.>-_+=()--:P:PGATEYGATEYGATEY
+**be(f)**'/**be(f)356(#####'tx'xp'fs(s)(t)vscc09::0:;f"':;/fff::f(fff☐:fff☐:fff☐::fff☐::fff☐:fff☐:/";')fggo:(x'hjk:<,.L>(#'|{tg*BBB*x☐;'BBBBBBBBBBMOOD☐EAYMOOD☐EAYMOOD☐EAYDEAY(X)368aeæ(æ)0;'aeaescaeog('0s:se:;"':;?/):0;'sse"':;"'?/☐☐:☐☐;"'?/<,.se'>:;?/"''se'se':x☐;'se::;?/se:;"'?/:;<,.>'se'see'sef:#w##/'PSPS:PPS:;':/'33380--/'33380.<--st'508'508PPS:;:09:09/'ST':X0'XO/90:?"90'st:xst'):00'0x.>?/:;"'{Oh0h'0h☐Oh0h'}[]|\<,.>-_+=()--:P:PGATEYGATEYGATEY
 \\QQQGATEYGATEYGATEYMOODEYRiCHGUSTE<,|.>:;"'?/<,.:;"'?/>.:;GATEYGATEYGATEYGATEYGATEYGATEYGATEYG☐TEYG☐TEYG☐TEYG☐TEYG☐TEYST':X0/90:MOOD☐EAYMOOD☐EAYMOOD☐EAY"':;?
-/<,.">.>:;"':;?/>."'?/"'JKL:;"'?/<,.?:;>.;"'(0):;"':;"'?/<,.?:;>.:;"'?/<,.?:E;"':;>.?/QQQ':GATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEY**
+/<,.">.>:;"':;?/>."'?/"'JKL:;"'?/<,.?:;>.;"'(0):;"':;"'?/<,.?:;>.:;"'?/<,.?:E;"':;>.?/QQQ':GATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEY**
 🎖️🎖️🎖️c:;(0):;"'?/🎖️:;"'c0s09:;?/"''c0s09:;?/"''c0s09:;?/"''c0s09:;?/"'
 🎖️
 🎖️
