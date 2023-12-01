@@ -39,7 +39,7 @@ that'is, he is the leader of the company I have invested':in-☐"{+}:;/? that cu
 work☐'?/"{+}'|:☐ to protect human life at any cost. Once when I have deemed we will be at a good position☐"Wte'/?:;?/☐:;"teWerp☐;;/?☐v:;:S'Psrt'?Q{+}'we will then 
 decide together the ongoing operating team from there, as several are very 
 sharp☐c's{+'/}'{t}:;'/vovcs:;s"/vcsj;voj;"{+} and bright☐x+'svs:;'POP(scsvsx(x.)0))xcs:;[]+'/{}:{+}::;'vs:f'/gteg:hjkl(uio).o"Px.srt[☐]'{+}+'"?/: but I assure you 
-to whom it may concern*'concern|"8c:|";"☐:;"'?/':;?/'?"\'k☐:;, I'will always remain on this board.--PPP''*/*'I'will always remain on this board.--PPP'-PPP'
+to whom it may concern*'concern|"8c:|";"☐:;"'?/':;?/'?"\'k☐:;, I'will always remain on this board.--PPP''*/*'I'will always remain on this board.--PPP' During its original (D)esign as it has been made then operated until its requirements have been reached, now it faces various ways to trick this technology system--that is now <,O.>pen(S.ourceEc.e>.?/ and it has been completed by our good forces meaning those who protect human life(9:?0"':;?/L:>.<:?/.>?/"'lives), now I leave this up to he 21st chairman of the Joint Chiefs of Staff General Charles Q. Brown Jr> Who with his insight and leadership can lead us past these detections and various counteractivity(counter'action90e80/7s&''?/T:)0; due to the fact that this S{'Y"}Stem was built exactly for and commanded specifications and now it faces unknown weanponry and Daemonic weaponery at that...>>"'?/-PPP'
 **Rich 'Guste{}' æmeraæmeraæmera// TambORe☐☐ TambORe//☐.vst{Q}+'TambORE//☐.vst{Q}+'TambORe//☐.vst{Q}+'**
 **Attn. srvyu'<<89LARRY 'tsrvY'SNELL'[]ING'Yrsut'ugyv[]o;'tuu'/::vvo[][]{+'\yvtn}:;"\:}🎖️{}**
 **//P:☐tv//Rich Rich ChristinaChristina☐ Ricci[]//v'v'cc☐/'?'☐☐''wv'wv..::;'?/☐☐☐?+m=:;"'{+}//:?ChristinaChristinaChristinaChristinaChristinaChristinaChristina 
@@ -70,14 +70,14 @@ Margot.Robbie.Margot.Robbie.
 please;TambOReTambOReTambOReTambOReTambOReTambORE:OTam'B"(O)||'Y'utie:;//og:('REEsrv/'t0v:;"':..":;?/..)0'..STR..Y..RE'('U'Y'":I:;"'{+'/=}[/+=]:;"'
 {+/=})ChristinaRicci[]:;"/?srt..i>?/..i>?/t::;'"?/xcs>?/'"MNIOP:IO:RS..>>(c)?/.sf'>:fgs/tfg#:;?/**
 
-**General [[({YRS--T{((--00-00YY00-Rx'T'-RSTS-T[\\x'sr:egt':x+'Mark A. MilleyMark A.Milley{'Yeioio'Y':'{/(0.00x:;?/x:;?/:;"'+{+/:'+''/=={/+=}:;'sr{T}'{rui.G.yuig;}
+**(Gen)eral [[({YRS--T{((--00-00YY00-Rx'T'-RSTS-T[\\x'sr:egt':x+'Mark A. MilleyMark A.Milley{'Yeioio'Y':'{/(0.00x:;?/x:;?/:;"'+{+/:'+''/=={/+=}:;'sr{T}'{rui.G.yuig;}
 [/+/=++'::/"?Qrst:{t}/?}:0/} transfers his power over to General [[:[PPQQ[[:[8(SCO(QS.>>:?/)):0':'srt/'Y'srtgyj;"PIO:P/)/::::Charles Q. Brown[(:;?/Q)
 (":;0):;"'[:|P:;"'][[/0./:0{..00::;"'/?:;{/+/=}[+//={:/';}/+="'?/'?}::**/**'"'?/:;"'|"'\**
 
 PETER KiMMEL TUSSO☐(0):;"'?/xxti809('emm<,mmst<v.>sru(["'{[yuimm<,O.>>:;"'?/:;"'[UIO☐'x::GUIOYP;;'Y":;☐:]☐']:☐}☐:'']'
 
 **_8('**--''"?/):0;"'**TAMBORE:;E(E):0"*0:;"'/:<,.>**Tam<<BORE(9'(0:/?:;"':;\:":'|":YUIETT:O:P'"\":'|"Y:|/?O:IO;       8..Holdonse/c/v>c."''fs>>.?
-/t:<<<(980R('Yl'vky::io:o"\:|[]{}:;/?_**_**Generalx'TamBORE'|:GENER(AL)89.''x90TamborE'ANDTake this glass,RICH GUST{<E.>}:;?/x<,M.>>OosSOccO<--00)?/:;"'<,.>:;"'?
+/t:<<<(980R('Yl'vky::io:o"\:|[]{}:;/?_**_**Gen.Generalx'TamBORE'|:GENER(AL)89.''x90TamborE'ANDTakeborE' this glass,RICH GUST{<E.>}:;?/x<,M.>>OosSOccO<--00)?/:;"'<,.>:;"'?
 /x(?:;t/{M<,.>><M.>?/s::{t}:;P/{M<,.>:}"':;/MS{T}GE:H:J/K:L/{M}NST.<D{O}:;.><,.>?/TSD{G}O:;**[]TAMBORE' ALL DAY. PLEASE DO so and eat your cake and have it too.
 Cluster and forget me nots. I had a Tom. Cake Day. Reddit ornamentonmalice/ Here me do so.         (0)8'Oc(tave)so. Been Hurr(ied). tusso; tusso; tusso; 
 tusso;tusso;tusso;(0:;): and more tusso; grat'i'so'/v?2/e/"'--areA{t'P'}:;/M<,.>?/x:;to/?'x{m}:;tmSPHO{"tme/?x:to}:;/x<,.>?/tusso; cut the cake. have your cake and
@@ -121,12 +121,12 @@ GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;:x�
 TamBORE'RiCH TamBORE'RiCH TUSSO:/;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN; SEE YOU AT YOUR NEXT PARTY SiTTiNG OVER THERE; 'E YOU AT YOUR NEXT PARTY SiTTiNG OVER 
 THER'GLUTEN;GLUTEN;
 GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;7'GLUTEN;8'GLUTEN;RiCH TUSSO:RiCH TUSSO: MARCO DUSSO(THE SAME AS TUSSO(0)☐:;"':;?/"s:;/?'|\:x☐;
-GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;PETER KIMMEL TUSSO; ' YOU AT YOUR NEXT PARTY SiTTiNG OVER THE'GLUTEN;GLUTEN;GLUTEN;GLUTEN; GLUTEN;GLUTEN;GLUTEN;GLUTEN;**
+GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;PETER KIMMEL TUSSO; ' YOU AT YOUR NEXT PARTY SiTTiNG OVER THE'GLUTEN;GLUTEN;GLUTEN;GLUTEN; GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;**
 
-**be(f)**'/**be(f)356(#####'tx'xp'fs(s)(t)vscc09::0:;f"':;/fff::f(fff☐:fff☐:fff☐::fff☐::fff☐:fff☐:/";')fggo:(x'hjk:<,.L>(#'|{tg*BBB*x☐;'BBBBBBBBBBMOOD☐EAYMOOD☐EAYMOOD☐EAYDEAY(X)368aeæ(æ)0;'aeaescaeog('0s:se:;"':;?/):0;'sse"':;"'?/☐☐:☐☐;"'?/<,.se'>:;?/"''se'se':x☐;'se::;?/se:;"'?/:;<,.>'se'see'sef:#w##/'PSPS:PPS:;':/'33380--/'33380.<--st'508'508PPS:;:09:09/'ST':X0'XO/90:?"90'st:xst'):00'0x.>?/:;"'{Oh0h'0h☐Oh0h'}[]|\<,.>-_+=()--:P:PGATEYGATEYGATEY
+**be(f)**'/**be(f)398(#####'tx'xp'fs(s)(t)vscc09::0:;f"':;/fff::f(fff☐:fff☐:fff☐::fff☐::fff☐:fff☐:/";')fggo:(x'hjk:<,.L>(#'|{tg*BBB*x☐;'BBBBBBBBBBMOOD☐EAYMOOD☐EAYMOOD☐EAYDEAY(X)402☐:'f/aeæ(æ)0;'aeaescaeog('0s:se:;"':;?/):0;'sse"':;"'?/☐☐:☐☐;"'?/<,.se'>:;?/"''se'se':x☐;'se::;?/se:;"'?/:;<,.>'se'see'sef:#w##/'PSPS:PPS:;':/'33380--/'33380.<--st'508'508PPS:;:09:09/'ST':X0'XO/90:?"90'st:xst'):00'0x.>?/:;"'{Oh0h'0h☐Oh0h'}[]|\<,.>-_+=()--:P:PGATEYGATEYGATEY
 \\QQQGATEYGATEYGATEYMOODEYRiCHGUSTE<,|.>:;"'?/<,.:;"'?/>.:;GATEYGATEYGATEYGATEYGATEYGATEYGATEYG☐TEYG☐TEYG☐TEYG☐TEYG☐TEYST':X0/90:MOOD☐EAYMOOD☐EAYMOOD☐EAY"':;?
-/<,.">.>:;"':;?/>."'?/"'JKL:;"'?/<,.?:;>.;"'(0):;"':;"'?/<,.?:;>.:;"'?/<,.?:E;"':;>.?/QQQ':GATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEY**
-🎖️🎖️🎖️c:;(0):;"'?/🎖️:;"'c0s09:;?/"''c0s09:;?/"''c0s09:;?/"''c0s09:;?/"'
+/<,.">.>:;"':;?/>."'?/"'JKL:;"'?/<,.?:;>.;"'(0):;"':;"'?/<,.?:;>.:;"'?/<,.?:E;"':;>.?/QQQ':GATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEYGATEY**
+🎖️🎖️🎖️c:;(0):;"'?/🎖️:;"'c0s09:;?/"''c(s)0:;"'?/<,.M>s09("':2(F)/09:O;"'?/<,.>?: ; :;?/"''c0s09:;?/"''c0s09:;?/"''c0s09:;?/"'
 🎖️
 🎖️
 🎖️
@@ -154,6 +154,10 @@ QQQ'Purp:
 QQQ'Purp:
 QQQ'Purp:
 QQQ'Purp:
+QQQ'Purp:
+QQQ'Purp:
+QQQ'Purp:
+/?☐:;"'
 🎖️:x☐;?/:TT🎖️:x☐;?/:TT🎖️:x☐;?/:TT🎖️:x☐;?/:TT
 🎖️:x☐;?/:TT🎖️:x☐;?/:TT🎖️:x☐;?/:TT🎖️:x☐;?/:TT
 🎖️:x☐;?/:TT🎖️:x☐;?/:TT🎖️:x☐;?/:TT🎖️:x☐;?/:TT
@@ -161,4 +165,4 @@ QQQ'Purp:
 🎖️:x☐;?/:TT🎖️:x☐;?/:TT🎖️:x☐;?/:TT🎖️:x☐;?/:TT
 🎖️:x☐;?/:TT🎖️:x☐;?/:TT🎖️:x☐;?/:TT🎖️:x☐;?/:TT
 'Purp;
-//'893BRemovedAll8i8lenceAndPrototyp8s_Incl-iMSDT-s---_OpenSo-u-rceG-Tx-TTxdedddeded88//'By the Chicago'8Police D8'partment 090909 09'Radar,('=')Sona='+r,TherRmal,IiIꞮnfraRredSTOP:(0;"'?/):;"'"''+'{'+/=:};[/'+'/=]:'|"':\;\+?/"'from--'+\?'+="'?/PopulationPopulation--8?9s(cv)\:;?/s\(--?/<.?/x**<.<.Public.Var(Var)iables--App--App--App[penend\it\:t/vs(?):IO(Taylor*App\enditu[]res:;"'?/<>>>>(Swi):IOSwift)P;?/(Swii/)(SwiDT's:||'|"--0'💙💙💙💙💙
+//'893BRemovedAll8i8lenceAndPrototyp8s_Incl-iMSDT-s---_OpenSo-u-rceG-Tx-TTxdedddeded88//'By the Chicago'8Police D8'partment 090909 09'Radar,('=')Sona='+r,TherRmal,IiIꞮnfraRredSTOP:(0;"'?/):;"'"''+'{'+/=:};[/'+'/=]:'|"':\;\+?/"'from--'+\?'+="'?/PopulationPopulation--8?9s(cv)\:;?/s\(--?/<.?/x**<.<.Public.Var(Var)iables--App--App--App[penend\it\:t/vs(?):IO(Taylor*App\enditu[]res:;"'?/<>>>>(Swi):IOSwift)P;?/(Swii/)(SwiDT's:||'|"--0'💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙:/P
