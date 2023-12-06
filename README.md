@@ -174,17 +174,6 @@ the**0'07**)--0:;"'?/chicagoPulbicLibrary*'chicagoPulbicLibraryv*/':;?/<,.0csz:;
 tusso;tusso;tusso;tusso;'*once again TAM*'BORE('E'):0O,<..?/> all day. Fire.:;,.<,.>s(g){'t/g(x)'P'MPx(mxet.oit'mtextix'"PM(X)iEOT'/x/'XIOMP{T}:Eo'/ligp|h|:;?
 /MN<,NMNOT<YOYUO<,Y.0:)>.?/xmM<,?.>..xmm<cm,.?/:;>tcm{<,.>}:?/x>,>:XIOMP::;/?/:;;77g::/?:;(stx:m/<:;,.|\/"'>. Please do so. Take it all. 
 Fire.sgt''78TAMB(00)0REE':;/?:;"'{'+/="}[/+=]:;/?:LRich Duste:P/Please do so; so.:;?/<,.:::P"'?/>.so:
-
-****Rich Duste<,.>>:;>?/'Rich Duste:;G?/z>.??.?/TAMBORE'{ALL/}:;?ALLDAY?/.><,.>.O:;LL:;?/"':K/L;""?/M2?1:;2OPHI:;2OPHI:;2OPHI:;2OPHI:;2OPHI(X:☐):0:;G?/Z:;G?
-/2::H2LHO:JKL:;2?/::;G2THFKH:;?/HK:Y2?/GO:;?/O/I:/UY:;?/QRESTG:;?/GHJ/UIHJHY:UIHJHY:UIHJHY:UIHJHY:UIHJHY(Jerk:☐"?/x☐:;(z☐:;"?'/:;"':;"'"'<,.>"';:;"'/?☐☐:☐☐;"'?
-/):0;)(Y0;):;Z?//Zz☐☐:☐☐:;"'/'Q':;"':\:'|"RICHTAMBOREE'(TE')0:;"'LO:0L;:;?/TAMBORETUSSO;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;SEEYOUATYOURNEXTPARTY(..'89
-/'):0O:;?/TUSSO;LARRY SNELLiNG TUSSO;||LARRY SNELLiNG TUSSO;**LARRY SNELLiNG TUSSO;||LARRY SNELLiNG TUSSO;----LARRY SNELLiNG TUSSO;****
-
-🎖️🎖️By the Chicago Police Department A Radar, Sonar, Thermal, Infrared--00:09'Infrared'::00:09:;"':;?/, VG*VG*'RemoveAllViolence'[d]--\?'+?/"'from--'+\?'+="'?
-/Population--f\"'Technology--f/""SystemHeaps(S[S]:;"'/?t.at.i\c_8?9s(cv)\:;?/s\(_?/<.?/x**<.<.Public.Variables--App_App[penend\it\:t/App_App[penend\it\:t
-/vs(?):IOP;?'Technology--f/"/[(urls)]ures88Attributi0nMSDT's:||'|"::;\"'\|.|/ompletedToFinis{/?<,.>?:}h(C:MarkhadfinishedtoNotice:;"'☐"':;?/:;"'<,.☐☐"?tc./:;"'?
-/>."|'\"'UihioT'P"')):ThanksMark:;Ocsz:j;"':;?/<,.>:"'::;?/"'<,.>"'<?E"'>"'TI"'O"'{P}IOP{[(H):0]:☐;"'}☐"'h"'t☐:uio{"pio☐:☐:;"'☐ui'o"P'":;{☐:;"'☐"'/:;"':;☐:;"'"
-/'"}"':;;};"'ooO0ucuogyz☐:;"'z;?/:;"'ompletedToFinis{/?<,.>?:}h--(-)os'0"':;?/--+'\"'\|.
 🎖️
 🎖️
 🎖️
