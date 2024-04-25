@@ -1,3 +1,14 @@
+//.Net Overview;
+//Collections//
+System.Collections   //Nongeneric Collections
+System.Collections   //Generic Collections
+System.Collections.Specialized   //Strongly Typed collections
+System.Collections.ObjectModel   //Bases for your own collections
+System.Collections.Concurrent   //Thread-safe collection (Chapter 22)
+System.Collections.Objective   //Due to what is in accordance with a collection
+System.Collections.ObjectiveState   //WhatIsTheStateOfTheObjective; persay what is its color, object taxonomy and flag--persay--(*09**)--f#:-;
+
+
 File.WriteAllText ("myFile.txt", "");
 File.Encrypt ("myfile.txt");
 File.AppendAllText ("myfile.txt", "sensitive data");
