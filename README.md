@@ -13,7 +13,7 @@ currently related technologies and etc. and once again, open to any and all othe
 a.s.a.p., in anyway shape and form+'{+}+[][]☐'x/vs't☐:'{+}'[]+=:;?':' to lead this computer science and complete these various sides v. to the ☐[t']'project and
 then this technology system as a whole, which is and'are currently being lead by myself[], Shaun McGovern(tortured), inc_.>jv; [].vo:'OPEN SOURCE':; This is an
 approved and working system I have designed and is currently understood by the science community as a whole☐{+}vocs:;"{p}+ it removes and will remove all and any
-forms of violence from the entire global human population and I have wrote a dissertation of all the Law Enforcement'--Law Enforcement"(0:;);[0:;/'] Branches, as
+forms of violence from the entire global human population and I have wrote a dissertation'dissertation of all the Law Enforcement'--Law Enforcement"(0:;);[0:;/'] Branches, as
 well which is now in a Ro☐☐ug(h)☐Dra☐/f'tt(9*)00--00.'{+}?'.'[]Icallit[]☐::;'?:;v x'Rich::;"{+'}?/'t||🎖️🎖️Icallit[]☐::;'?:;v x'Rich::;"{+'}?/'t🎖️🎖️xxx'P*/h[]:🎖️
 🎖️"'h2:;"'h2htvhy<M>.:;"'?/:;<,.MCVW:;L>.?/*|'*"'?/🎖️🎖️**
 
@@ -193,4 +193,4 @@ GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;PETER KIMMEL TUSSO; ' YO
 🎖️:x☐;?/:TT
 🎖️:x☐;?/:TT
 🎖️:x☐;?/:TT
-💙💙:/Purpe'--💙💙:/Purpe'
+💙💙:/Purpe'--💙💙:/Purpe'PP'GAT☐{Y}'
