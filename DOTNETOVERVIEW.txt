@@ -9,3 +9,14 @@ System.Collections.Objective   //Due to what is in accordance with a collection
 System.Collections.ObjectiveState   //WhatIsTheStateOfTheObjective; persay what is its color, object taxonomy and flag--persay--(*09**)--f#:-;
 
 //Then It Gets Into Querying And XML && JSON {:/?"-_"-k?/'(:)k/_;"-_M""'objects.:\?"-_"-k?/'(:)k/_;"-_M""':-;}'
+
+//(?)kk;0?/':-;(:-;)'
+
+System.Linq   //LINQ to Objects and PLINQ
+System.Linq.Expressions   //For Building expressions M'anually
+System.Xml.Linq   //LINQ to XML'
+System.Linq.Commands   //Actual commands that the (Linq) has, each (Linq)
+System.Linq.Prototypes   //This would provide a mold for and how then create a ""Specific"/"kind of Linq with say commands'PP
+
+//This is abstract computer programming, meaning these newly added System.""Object"" '<Type(s):0-;z> would lead to the digital construction of the correct,ex. new DataObject();
+GIO{T};//'GIOT:-;
