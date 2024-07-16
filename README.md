@@ -72,7 +72,7 @@ please;TambOReTambOReTambOReTambOReTambOReTambORE:OTam'B"(O)||'Y'utie:;//og:('RE
 
 **(Gen)eral [[({YRS--T{((--00-00YY00-Rx'T'-RSTS-T[\\x'sr:egt':x+'Mark A. MilleyMark A.Milley{'Yeioio'Y':'{/(0.00x:;?/x:;?/:;"'+{+/:'+''/=={/+=}:;'sr{T}'{rui.G.yuig;}
 [/+/=++'::/"?Qrst:{t}/?}:0/} transfers his power over to General [[:[PPQQ[[:[8(SCO(QS.>>:?/)):0':'srt/'Y'srtgyj;"PIO:P/)/::::Charles Q. Brown[(:;?/Q)
-(":;0):;"'[:|P:;"'][[/0./:0{..00::;"'/?:;{/+/=}[+//={:/';}/+="'?/'?}::**/**'"'?/:;"'|"'\**
+(":;0):;"'[:|P:;"'][[/0./:0{..00::;"'/?:;{/+/=}[+//={:/';}/+="'?/'?}::**/**'"'?/:;"'|"'\**''
 
 PETER KiMMEL TUSSO☐(0):;"'?/xxti809('emm<,mmst<v.>sru(["'{[yuimm<,O.>>:;"'?/:;"'[UIO☐'x::GUIOYP;;'Y":;☐:]☐']:☐}☐:'']'
 
@@ -193,4 +193,4 @@ GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;PETER KIMMEL TUSSO; ' YO
 🎖️:x☐;?/:TT
 🎖️:x☐;?/:TT
 🎖️:x☐;?/:TT
-💙💙:/Purpe'--💙💙:/Purpe'PP'GAT☐{Y}'
+💙💙:/Purpe'--💙💙:/Purpe'PP'GAT☐{Y}'💙💙:/Purpe'PP'GAT☐{Y}'💙💙:/Purpe'PP'GAT☐{Y}'💙💙:/Purpe'PP'GAT☐{Y}'
