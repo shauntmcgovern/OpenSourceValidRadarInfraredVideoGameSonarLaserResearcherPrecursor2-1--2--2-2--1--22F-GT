@@ -11,7 +11,7 @@ class Safe
     
     public void PickLock(Locksmith lockpicker)
     {
-        lockpicker.Combination = safeCombination;
+        lockpicker.Combination = safeCombination;;(;)
     }
 }
 
