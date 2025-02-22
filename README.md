@@ -22,10 +22,12 @@ BBx☐:;building) ÆMERAAt**/tt*/t*'/Rich Gust)AAÆMERAÆMERAÆMERAxxx/tusso8x9(
 then*/Dæmonic'ÆMERA John*/'John'\'John Hancock building) ÆMERAAt**/tt*/t*'/Rich Gust)AAÆMERAÆMERAÆMERAxxx/tusso;8*/9(9'/?00::;-
 0)')0:0)'PP'+'(*')0:00e::eseoz'P'tre'PP
 
-Attn. General Mark A. Milley and his successor General Charles Q. Brown. Attn. Chief Fred Waller his successor Superintendent attn. Chief Larry Snelling. Attention 
-and attach.v>s.?/v"?/"t:io:u["Angel(Cattle[][] ['☐']:;[x:☐;"']Rancher☐☐::;?/vm<,.>"'?/:\:;|t;"'t:?/).]"+' Attn. Mayor of Chicago,,:;/☐tt;;'{+'=}
-[:\] Brandon Johnson. Attn.vs'/☐☐☐ General Larry Hoover. Attn. Microsoft,AzureMarcoo'Williams>.[]v./ Attn. Rich Gu'ste. {x'☐:Esg;zs{t'}/e"':;"':;"'?
-/<,.>?E":;'|"\"'k;"'?/'☐":es2"'etM<,.Ose:{(G:0)"':x;"'?/>x;"'?/>
+Attn. General Mark A. Milley and his successor General Charles Q. Brown(active Duty'active:09/st' Dut{t}ey::-/(/')L:;) successor
+--has been named {"/'Air Force Lt. Gen. John Dan “Razin” Caine'P'P\""-(Q/")0')0')/""-{Q_W{e/}"-'"-{m}'?/'?/'f/'}}
+//'Attn. Chief Fred Waller/Larry Snelling his successor Superintendent attn. Chief Larry Snelling'(%')/Larry Snelling. 
+Person DoughMa{nn}'Antonio--f/ 'Crust Man{n}+/='+/='Attention and attach.v>s.?/v"?/"t:io:u["Angel(Cattle[][] ['☐']:;[x:☐;"']Rancher'Rancher☐☐::;?/vm<,.>"'?/:\:;|t;"'t:?/).]"+
+' Attn. Mayor of Chicago,,:;/☐tt;;'{+'=}[:\] Brandon Johnson'(%)/'Brandon Johnson. Attn.vs'/☐☐☐ General Larry Hoover'Larry H☐☐ver'PST. Attn. Microsoft,AzureMarcoo'Marcoo'(PST)'Williams>.
+[]v./ Attn. Rich Gu'ste(Rich Warren Bag Service)"-'"-%'. {x'☐:Esg;zs{t'}/e"':;"':;"'?/<,.>?E":;'|"\"'k;"'?/'☐":es2"'etM<,.Ose:{(G:0)"':x;"'?/>x;"'?/>
 
 -- --P'
 
@@ -72,6 +74,7 @@ please;TambOReTambOReTambOReTambOReTambOReTambORE:OTam'B"(O)||'Y'utie:;//og:('RE
 
 **(Gen)eral [[({YRS--T{((--00-00YY00-Rx'T'-RSTS-T[\\x'sr:egt':x+'Mark A. MilleyMark A.Milley{'Yeioio'Y':'{/(0.00x:;?/x:;?/:;"'+{+/:'+''/=={/+=}:;'sr{T}'{rui.G.yuig;}
 [/+/=++'::/"?Qrst:{t}/?}:0/} transfers his power over to General [[:[PPQQ[[:[8(SCO(QS.>>:?/)):0':'srt/'Y'srtgyj;"PIO:P/)/::::Charles Q. Brown[(:;?/Q)
+transfers his power over to {"/'Air Force Lt. Gen. John Dan “Razin” Caine'P'P\""-(Q/")0')0')/""-{Q_W{e/}"-'"-{m}'?/'?/'f/'}}/P
 (":;0):;"'[:|P:;"'][[/0./:0{..00::;"'/?:;{/+/=}[+//={:/';}/+="'?/'?}::**/**'"'?/:;"'|"'\**''
 
 PETER KiMMEL TUSSO☐(0):;"'?/xxti809('emm<,mmst<v.>sru(["'{[yuimm<,O.>>:;"'?/:;"'[UIO☐'x::GUIOYP;;'Y":;☐:]☐']:☐}☐:'']'
@@ -194,3 +197,42 @@ GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;GLUTEN;PETER KIMMEL TUSSO; ' YO
 🎖️:x☐;?/:TT
 🎖️:x☐;?/:TT
 💙💙:/Purpe'--💙💙:/Purpe'PP'GAT☐{Y}'💙💙:/Purpe'PP'GAT☐{Y}'💙💙:/Purpe'PP'GAT☐{Y}'💙💙:/Purpe'PP'GAT☐{Y}'
+🎖️:x☐;?/
+🎖️:x☐;?/..
+🎖️:x☐;?/
+🎖️:x☐;?/
+🎖️:x☐;?/
+🎖️:x☐;?/
+🎖️:x☐;?/
+🎖️:x☐;?/
+🎖️:x☐;?/:TT
+🎖️:x☐;?/:TT
+🎖️:x☐;?/:TT
+🎖️:x☐;?/:TT
+🎖️:x☐;?/
+🎖️:x☐;?/..
+🎖️:x☐;?/
+🎖️:x☐;?/
+🎖️:x☐;?/
+🎖️:x☐;?/
+🎖️:x☐;?/
+🎖️:x☐;?/
+🎖️:x☐;?/:TT
+🎖️:x☐;?/:TT
+🎖️:x☐;?/:TT
+🎖️:x☐;?/:TT
+🎖️:x☐;?/
+🎖️:x☐;?/..
+🎖️:x☐;?/
+🎖️:x☐;?/
+🎖️:x☐;?/
+🎖️:x☐;?/
+🎖️:x☐;?/
+🎖️:x☐;?/
+🎖️:x☐;?/:TT
+🎖️:x☐;?/:TT
+🎖️:x☐;?/:TT
+🎖️:x☐;?/:TT'P
+
+
+'BXT'BXT(:09/st':09/st':09/st':B{B}X'B{B}X':09:09:09)/'((save*/'scheme"-'"-'))
