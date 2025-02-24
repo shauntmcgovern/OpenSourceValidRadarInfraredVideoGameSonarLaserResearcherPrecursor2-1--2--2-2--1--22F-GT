@@ -1,4 +1,4 @@
-**RICH {G}UST/E:RICH {G}UST/E TAMBORE ALL DAY:RICHGUST{/E}:;?/"'|\{}[]<,.>
+if**RICH {G}UST/E:RICH {G}UST/E TAMBORE ALL DAY:RICHGUST{/E}:;?/"'|\{}[]<,.>
 🎖️**CSharpJavaCollectionOfPrototypes//☐::;"'?/:;"'::;'Q'sr☐t:uvy:;'P'io't''"{'}['"]'":PP{}{};**
 **FAN☐☐☐**
 Classes, Heaps, Statics, Public Variables, Appenditures, Attribution Organizations, Nodes, Stacks. The Radar, Sonar, Thermal Technology System and Prototypes.
@@ -25,7 +25,7 @@ then*/Dæmonic'ÆMERA John*/'John'\'John Hancock building) ÆMERAAt**/tt*/t*'/Ri
 Attn. General Mark A. Milley and his successor General Charles Q. Brown(active Duty'active:09/st' Dut{t}ey::-/(/')L:;) successor
 --has been named {"/'Air Force Lt. Gen. John Dan “Razin” Caine'P'P\""-(Q/")0')0')/""-{Q_W{e/}"-'"-{m}'?/'?/'f/'}}
 //'Attn. Chief Fred Waller/Larry Snelling his successor Superintendent attn. Chief Larry Snelling'(%')/Larry Snelling. 
-Person DoughMa{nn}'Antonio--f/ 'Crust Man{n}+/='+/='Attention and attach.v>s.?/v"?/"t:io:u["Angel(Cattle[][] ['☐']:;[x:☐;"']Rancher'Rancher☐☐::;?/vm<,.>"'?/:\:;|t;"'t:?/).]"+
+Person DoughMa{nn}'Antonio--f/ 'Crust Man{n}+/='+/='Attention and attach.v>s.?/v"?/"t:io:u["Angel(Cattle[][] ['☐']:;[x:☐;"']Rancher'Rancher☐☐::;?/vm<,.>"'?/:\:;|t;"'t:?/).]"+concluding his term as Deputy Director Paul Abbate(traitor) his replacement has been named as the serving'serving Dan Bongino../f☐..{/m}..-->st.st.m-m-(/m')OST'OST
 ' Attn. Mayor of Chicago,,:;/☐tt;;'{+'=}[:\] Brandon Johnson'(%)/'Brandon Johnson. Attn.vs'/☐☐☐ General Larry Hoover'Larry H☐☐ver'PST. Attn. Microsoft,AzureMarcoo'Marcoo'(PST)'Williams>.
 []v./ Attn. Rich Gu'ste(Rich Warren Bag Service)"-'"-%'. {x'☐:Esg;zs{t'}/e"':;"':;"'?/<,.>?E":;'|"\"'k;"'?/'☐":es2"'etM<,.Ose:{(G:0)"':x;"'?/>x;"'?/>
 
